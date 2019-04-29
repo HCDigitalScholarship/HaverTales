@@ -1,8 +1,14 @@
 ---
 layout: default
-title: "Ed."
+title: "Haver Tales and Bryn Marvels"
 ---
 
-## The General Prologue
+### The General Prologue
 
-## "The Knight's Tale"
+### "The Knight's Tale"
+
+### "The Wife of Bath's Prologue" 
+
+### "The Wife of Bath's Tale"
+
+### New Prologues, Charachters, and Tales 
