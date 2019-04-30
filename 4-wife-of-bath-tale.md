@@ -2,7 +2,9 @@
 layout: page
 title: The Wife of Bath's Tale
 ---
-
+<p align="center">
+  <img src="https://github.com/HCDigitalScholarship/HaverTales/raw/master/new_squirrel.png" alt="image of Haverford squirrel"/>
+</p>
 {:.no_toc}
 
 * ToC
