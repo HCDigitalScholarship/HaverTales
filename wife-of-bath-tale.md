@@ -1,6 +1,6 @@
 ---
-layout: poem
-title: "The Wife of Bath's Tale"
+layout: page
+title: The Wife of Bath's Tale
 ---
 
 He saugh a mayde walkinge him birforn,
