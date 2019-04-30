@@ -15,7 +15,7 @@ Allison, Residential Advisor for Hall 7, Kerrey Hall, The New School
 
 By Aine Carolan, Haverford ‘20
 
-	You want to know the truth about dating apps? I’ve had Tinder for a year now – I downloaded it with Bumble and Hinge. I haven’t gotten around to the others yet, but I think I’ve got enough experience – five hookups so far – to explain internet romance to you. 
+You want to know the truth about dating apps? I’ve had Tinder for a year now – I downloaded it with Bumble and Hinge. I haven’t gotten around to the others yet, but I think I’ve got enough experience – five hookups so far – to explain internet romance to you. 
 
 I can hear my parents screaming all the way from Michigan, “FIVE BOYFRIENDS! IN ONE YEAR!” But they don’t understand dating these days: for them, “boyfriend” is a label for the person I’ll marry once he’s far enough into his boring job to support me. That’s a little unfair, they know I have ambitions – they did pay for my fashion design degree after all. But they’re stuck in their ways. If you grow up thinking virginity is all a woman has to show for herself until she gets her one chance at marriage, you end up pushing it on your kids. 
 
@@ -25,7 +25,7 @@ Well, my virginity is gone anyway and I’m being moral by taking the pill! I sa
 
 Allison, I don’t know if you’re the authority on ethical childbearing. You have sex because you like it. And I don’t know if you’re the best interpreter of religion, either. Just last week you told me a Mormon came to your door and you thought it was an actor advertising for the musical…
 
-	Fine! You’re right. I use Tinder because I like sex. Not all sex, only good sex, only when I enjoy it more than whatever lucky man I’m fucking. Who cares if I can’t recite the Bible front to back; everyone’s an atheist in 2019. We’ve got HBO to tell us what sex is all about, and I’ve seen enough Girls to know it’s about pleasure, my pleasure. But you’re getting me off topic. I’m trying to explain Tinder. 
+Fine! You’re right. I use Tinder because I like sex. Not all sex, only good sex, only when I enjoy it more than whatever lucky man I’m fucking. Who cares if I can’t recite the Bible front to back; everyone’s an atheist in 2019. We’ve got HBO to tell us what sex is all about, and I’ve seen enough Girls to know it’s about pleasure, my pleasure. But you’re getting me off topic. I’m trying to explain Tinder. 
 
 I said I’ve had five hookups, flings, romances in the past year. January feels like a decade ago. Dating so many men ages you – they’re all so immature it turns you into their mother. Let me start by saying this: it’s all about balance. You’re not going to find someone rich, nice, and good in bed on these apps. You’ve gotta figure out what each guy offers and make sure you’re okay with it. 
 
