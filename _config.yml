@@ -1,1 +1,45 @@
 remote_theme: minicomp/ed
+
+title:               Ed.
+tagline:             'a jekyll theme for minimal editions'
+description:         'Ed is a Jekyll theme designed for textual editors based on minimal computing principles, and focused on legibility and flexibility.'
+url:                 'http://minicomp.github.io'
+baseurl:             '/ed'
+
+# About/contact
+author:
+  name:              Sarah Watson
+  url:               https://www.haverford.edu/users/swatson
+  email:             swatson@haverford.edu
+
+# Color scheme. Options: red, orange, magenta, cyan, blue, brown
+color-scheme: blue
+
+# Permalinks
+permalink: pretty
+permalink: /:title/
+
+# Set encoding to UTF-8
+encoding: utf-8
+
+# Collections for texts
+collections:
+  texts:
+    output: true
+
+# Markdown specs
+markdown: kramdown
+
+kramdown:
+  auto_ids:       true
+  footnote_nr:    1
+  entity_output:  as_char
+  footnote_backlink: "&#x21a9;&#xfe0e;"
+  toc_levels:     1..6
+  smart_quotes:   lsquo,rsquo,ldquo,rdquo
+  enable_coderay: false
+
+# Exclusions from the final site
+exclude:
+  - optional
+  - vendor
