@@ -21,34 +21,34 @@ In “The General Prologue,” the narrator of *The Canterbury Tales* explains h
 ## Money Motivated  
 by Jacob Landsberg, Haverford ‘21
 
-A business student there was, as driven as they come,
-He spent his days in accounting, calculating sums.
-Yet, a second in class was a second misspent,
-Especially with networking events to frequent.
-After all, when C’s get degrees,
-Why would he waste time with Socrates?
-In a world where cash is king,
-“Business major” sure had a nice ring.
-With December arrived the flurry of snow,
-As his job interviews began to grow,
-He longed for a job that would overpay
-At Goldman or maybe B of A.
-Waiting for his interviewer, palms sweating
-Hoping for that water the receptionist was getting.
-He had practiced his handshake a thousand times,
-Up the corporate ladder, he hoped to climb.
-He’d left econ to the academics and tryhards,
-Business, he knew, was the way into Vanguard.
-He was certainly worthy of the position,
-His LinkedIn page alone warranted admission.
-He’d put away his khakis and his polos—all in pink,
-Now he sat in suit and tie, complete with cufflinks,
-A jacket of black with pants to match,
-Shoes shone, without even a scratch,
-A white shirt, freshly ironed, and his look was done
-Straight out of “How to Get a Job, 101.”
-Yet, if he missed out on the job, it wouldn’t be too bad,
-He could always work at JP Morgan, thanks to dad.
+- A business student there was, as driven as they come,
+- He spent his days in accounting, calculating sums.
+- Yet, a second in class was a second misspent,
+- Especially with networking events to frequent.
+- After all, when C’s get degrees,
+- Why would he waste time with Socrates?
+- In a world where cash is king,
+- “Business major” sure had a nice ring.
+- With December arrived the flurry of snow,
+- As his job interviews began to grow,
+- He longed for a job that would overpay
+- At Goldman or maybe B of A.
+- Waiting for his interviewer, palms sweating
+- Hoping for that water the receptionist was getting.
+- He had practiced his handshake a thousand times,
+- Up the corporate ladder, he hoped to climb.
+- He’d left econ to the academics and tryhards,
+- Business, he knew, was the way into Vanguard.
+- He was certainly worthy of the position,
+- His LinkedIn page alone warranted admission.
+- He’d put away his khakis and his polos—all in pink,
+- Now he sat in suit and tie, complete with cufflinks,
+- A jacket of black with pants to match,
+- Shoes shone, without even a scratch,
+- A white shirt, freshly ironed, and his look was done
+- Straight out of “How to Get a Job, 101.”
+- Yet, if he missed out on the job, it wouldn’t be too bad,
+- He could always work at JP Morgan, thanks to dad.
 
 ---
 
