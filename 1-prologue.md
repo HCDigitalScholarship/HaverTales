@@ -59,262 +59,262 @@ He could always work at JP Morgan, thanks to dad.<br>
 ## The Pokémon Go Player  
 by Helena Frisbie-Firsching, Haverford ‘21
  
-There was a fellow arriving to Cope Field,
-A group of folks following at his heels.
-A battle they were to have, on the app
-Pokémon Go against the foe, pinap
-Berries used in the catch. Clad in warm hat
-And coat and red scarf, his outfit down pat
-To withstand the cold but also tap quick
-His phone screen and of his Pokémon pick
-A team with type advantage for the raid.
-He often comes to the motley group’s aid,
-In his pack is a portable charger;
-Cold’s unkind to phones. It’s bad to wager
-Raid rewards on batteries of low charge.
-His charging cable collection is large;
-He can lend for any model or make,
-If his Instinct gym they will not soon take.
-A normal glove or mitten he has none
-Rather the fingerless kind, which are fun
-And practical, so that he can keep most
-Of his hand comfortably warm, yet boast,
-Having dealt the most damage to Ho-Oh.
-And for this game which dearly he loves so,
-He will abandon his schoolwork for quests,
-Loitering at Stokes, not getting much rest.
-He is a physics major, as most are,
-His shoes worn from not traveling by car.
-Many kilometers a week walks he
-To hatch eggs and maybe catch a shiny.
-Always with his phone out and looking down,
-He scuttles his way throughout Havertown.
+There was a fellow arriving to Cope Field,<br>
+A group of folks following at his heels.<br>
+A battle they were to have, on the app<br>
+Pokémon Go against the foe, pinap<br>
+Berries used in the catch. Clad in warm hat<br>
+And coat and red scarf, his outfit down pat<br>
+To withstand the cold but also tap quick<br>
+His phone screen and of his Pokémon pick<br>
+A team with type advantage for the raid.<br>
+He often comes to the motley group’s aid,<br>
+In his pack is a portable charger;<br>
+Cold’s unkind to phones. It’s bad to wager<br>
+Raid rewards on batteries of low charge.<br>
+His charging cable collection is large;<br>
+He can lend for any model or make,<br>
+If his Instinct gym they will not soon take.<br>
+A normal glove or mitten he has none<br>
+Rather the fingerless kind, which are fun<br>
+And practical, so that he can keep most<br>
+Of his hand comfortably warm, yet boast,<br>
+Having dealt the most damage to Ho-Oh.<br>
+And for this game which dearly he loves so,<br>
+He will abandon his schoolwork for quests,<br>
+Loitering at Stokes, not getting much rest.<br>
+He is a physics major, as most are,<br>
+His shoes worn from not traveling by car.<br>
+Many kilometers a week walks he<br>
+To hatch eggs and maybe catch a shiny.<br>
+Always with his phone out and looking down,<br>
+He scuttles his way throughout Havertown.<br>
 
 ---
 
 ## The Haverbro  
 by Caroline Ford, Haverford ‘21
  
-A HAVERBRO there was, an athlete, at that,
-A popular social caste in absence of a frat.
-Truly one who values social status and skill;
-This athlete cares most for FIFA and chill.
-A white boy, ™, with dirty blond hair,
-Tall in his stature, and pale face shaved bare.
-A regular at the GIAC to lift weights and run
-When outside of practices to condition,
-Always trying to remain hydrated
-With a gallon water jug, rather weighted.
-On the DC’s right side he, with Gatorade in hand,
-Would oft sit and embody the Nike brand.
-Lacrosse stick looped through his navy backpack,
-A ‘Ford sweatshirt he sported, bright red and black,
-Preppy Lacoste shorts, with Adidas shoes to match,
-So that any girl would think him quite a catch.
-A white snapback worn low atop his head
-While he sat with his legs generously spread;
-His position conveying confidence
-In both frank manner and ego immense,
-Surrounded by many of his fellow bros
-Discussing economics, I suppose.
-And alas, when the weekend arrives again, 
-As parties come around, every now and then;
-A champion of pong, he plays through the night,
-And well can he consume much Natty Lite.
-He is full ready to drink, juul, and dance,
-And perhaps give his homework just one glance.
+A HAVERBRO there was, an athlete, at that,<br>
+A popular social caste in absence of a frat.<br>
+Truly one who values social status and skill;<br>
+This athlete cares most for FIFA and chill.<br>
+A white boy, ™, with dirty blond hair,<br>
+Tall in his stature, and pale face shaved bare.<br>
+A regular at the GIAC to lift weights and run<br>
+When outside of practices to condition,<br>
+Always trying to remain hydrated<br>
+With a gallon water jug, rather weighted.<br>
+On the DC’s right side he, with Gatorade in hand,<br>
+Would oft sit and embody the Nike brand.<br>
+Lacrosse stick looped through his navy backpack,<br>
+A ‘Ford sweatshirt he sported, bright red and black,<br>
+Preppy Lacoste shorts, with Adidas shoes to match,<br>
+So that any girl would think him quite a catch.<br>
+A white snapback worn low atop his head<br>
+While he sat with his legs generously spread;<br>
+His position conveying confidence<br>
+In both frank manner and ego immense,<br>
+Surrounded by many of his fellow bros<br>
+Discussing economics, I suppose.<br>
+And alas, when the weekend arrives again, <br>
+As parties come around, every now and then;<br>
+A champion of pong, he plays through the night,<br>
+And well can he consume much Natty Lite.<br>
+He is full ready to drink, juul, and dance,<br>
+And perhaps give his homework just one glance.<br>
 
 ---
 
 ## The Haverbro   
 by Gwynne Dulaney, Bryn Mawr ‘20
  
-There was but once a Haverbro
-Who loved to compliment his flow
-With slick hair gel and rich pomade
-So that his flow would never fade.
-On his shirt ‘twas so finely embossed
-His team name for baseball or lacrosse.
-And maybe a hoodie intended to match
-So that he would thus be considered a catch.
-And Airbuds placed within his ears
-So hoots and cries he could not hear.
-He was well-versed in all the sports
-Made clear to all by his fine gym shorts.
-For always this man looked never meek
-But always buff and quite on-fleek.
-He was down to party, and shed a tear
-If ever there lacked some ice-cold beer.
-And all he greeted in much good mood
-With a deep and illustrious cry of, “dude!”
-He showed his love but on a whim
-With offers to hit the Gardner gym.
-A worldly man, of deep deep thought
-He made it clear he knew a lot.
-For only a man who’s not a fool
-Knows it best to smoke a Juul.
-For no man of wit would willingly beget
-The health problems brought on by a cigarette.
-These bits of wisdom were brought to be
-By majoring in philosophy.
-And every day, like fine clockwork he went-y
-To eat ample amounts of chicken tendies.
-And all girls nearby would be in fear and dreading
-Of that much-too-common thing they call man-spreading.
-One thing bound to set him in a rage
-Was the unfair elimination of the stage
-That graced the room of the good DC
-How silly could this dear bro be?
-A funny, silly, harmless lot
-Those Haverbros we love a lot.
-For where would all the Bi-Co be
-Without their positivity?
-Haverbros, we salute to you,
-Our bros so noble and so true.
+There was but once a Haverbro<br>
+Who loved to compliment his flow<br>
+With slick hair gel and rich pomade<br>
+So that his flow would never fade.<br>
+On his shirt ‘twas so finely embossed<br>
+His team name for baseball or lacrosse.<br>
+And maybe a hoodie intended to match<br>
+So that he would thus be considered a catch.<br>
+And Airbuds placed within his ears<br>
+So hoots and cries he could not hear.<br>
+He was well-versed in all the sports<br>
+Made clear to all by his fine gym shorts.<br>
+For always this man looked never meek<br>
+But always buff and quite on-fleek.<br>
+He was down to party, and shed a tear<br>
+If ever there lacked some ice-cold beer.<br>
+And all he greeted in much good mood<br>
+With a deep and illustrious cry of, “dude!”<br>
+He showed his love but on a whim<br>
+With offers to hit the Gardner gym.<br>
+A worldly man, of deep deep thought<br>
+He made it clear he knew a lot.<br>
+For only a man who’s not a fool<br>
+Knows it best to smoke a Juul.<br>
+For no man of wit would willingly beget<br>
+The health problems brought on by a cigarette.<br>
+These bits of wisdom were brought to be<br>
+By majoring in philosophy.<br>
+And every day, like fine clockwork he went-y<br>
+To eat ample amounts of chicken tendies.<br>
+And all girls nearby would be in fear and dreading<br>
+Of that much-too-common thing they call man-spreading.<br>
+One thing bound to set him in a rage<br>
+Was the unfair elimination of the stage<br>
+That graced the room of the good DC<br>
+How silly could this dear bro be?<br>
+A funny, silly, harmless lot<br>
+Those Haverbros we love a lot.<br>
+For where would all the Bi-Co be<br>
+Without their positivity?<br>
+Haverbros, we salute to you,<br>
+Our bros so noble and so true.<br>
 
 ---
 
 ## The F--kboy  
 by Becca Garfinkle, Bryn Mawr ‘20
  
-An F-CKBOY there was, upon the grounds, 
-In shorts in all seasons was he found
-No matter if snow should land, 
-The shorts he wore, always at hand. 
-Upon his feet he wore some slides
-From Adidas that were his pride,  
-With socks or not, it did not matter, 
-So long as his steps did not clatter. 
-His hair was in great need of a trim,
-Hidden underneath his hat’s brim
-It mattered not for no one could see. 
-Despite his college’s great plea, 
-He rode everywhere upon his board, 
-On it he placed a sticker hoard. 
-His shirt always said Supreme, 
-Like the others on his team. 
-They shot the balls into the hoop 
-And always traveled as a group. 
-Of average were his looks, 
-He ignored all of his books, 
-Instead he spent the day swiping
-Left and right, before typing, 
-“Hey girl, you’re so hot”  
-A girl he has never caught. 
-To think he studies communications, 
-To live up to his father’s expectations, 
-He dreams of taking over the firm;
-His father always makes him squirm, 
-When he gets the credit card bill, 
-His son he wants to kill,
-When he sees how much cash
-His son has spent all on trash. 
-The red solo cups he buys in bulk, 
-With his team they always sulk, 
-For their parties no one attends 
-Because they have no other friends. 
-Ladies if you see him stay away, 
-I promise you he is no good lay.  
+An F-CKBOY there was, upon the grounds, <br>
+In shorts in all seasons was he found<br>
+No matter if snow should land, <br>
+The shorts he wore, always at hand.<br> 
+Upon his feet he wore some slides<br>
+From Adidas that were his pride,  <br>
+With socks or not, it did not matter, <br>
+So long as his steps did not clatter. <br>
+His hair was in great need of a trim,<br>
+Hidden underneath his hat’s brim<br>
+It mattered not for no one could see. <br>
+Despite his college’s great plea, <br>
+He rode everywhere upon his board, <br>
+On it he placed a sticker hoard. <br>
+His shirt always said Supreme, <br>
+Like the others on his team. <br>
+They shot the balls into the hoop<br> 
+And always traveled as a group. <br>
+Of average were his looks, <br>
+He ignored all of his books, <br>
+Instead he spent the day swiping<br>
+Left and right, before typing, <br>
+“Hey girl, you’re so hot”  <br>
+A girl he has never caught. <br>
+To think he studies communications, <br>
+To live up to his father’s expectations,<br> 
+He dreams of taking over the firm;<br>
+His father always makes him squirm, <br>
+When he gets the credit card bill, <br>
+His son he wants to kill,<br>
+When he sees how much cash<br>
+His son has spent all on trash. <br>
+The red solo cups he buys in bulk, <br>
+With his team they always sulk, <br>
+For their parties no one attends <br>
+Because they have no other friends. <br>
+Ladies if you see him stay away, <br>
+I promise you he is no good lay.  <br>
 
 ---
 
 ## The Student-Athlete  
 By Aine Carolan, Haverford ‘20
 
-At Haverford there was a coy STUDENT-ATHLETE;
-The classic jock description his character did not meet.
-He looked the part: tall, emblazoned with the Ford logo,
-But the unpleasant demeanor he did forgo.
-He must juggle two very different vocations
-Because of his love for lacrosse and for education.
-He begins the day early with a few hours of exercise,
-Then heads to the Coop for the breakfast he buys.
-He refocuses his mind on his second passion,
-The English language, which he writes in such a fashion
-That reading his essays is a godsend for his professors
-Who usually act toward athletes as harsh assessors.
-He flips zealously through Steinbeck and Walker
-Before he returns yet again to his athletic locker.
-There he dons his pads, his helmet; he grabs his stick
-And out to the field he goes to run some defensive picks.
-After practice, he returns the gear to their hooks,
-Starting where he left off with his pen and notebooks.
-Settling into bed, looking down at his cleats,
-He goes to sleep happy he can awake and repeat.
-This boy of twenty-one, who is perhaps barely a man,
-Is astutely aware many think he is completely deadpan.
-Of towering stature and team attire, he is indistinguishable 
-But his enthusiasm for his studies is inextinguishable.
-He greets all who he sees, athletes and scholars alike
-As he zooms through the campus atop his blue bike. 
-Many are quick to conclude he sticks to the team flank,
-And accuse him of thinking he is of high social rank.
-But with kindness and humor he makes his rounds,
-Bringing much-needed positivity to campus grounds. 
-He is most accurately described as charming and empathetic,
-The impression you may first get of him is only an aesthetic. 
+At Haverford there was a coy STUDENT-ATHLETE;<br>
+The classic jock description his character did not meet.<br>
+He looked the part: tall, emblazoned with the Ford logo,<br>
+But the unpleasant demeanor he did forgo.<br>
+He must juggle two very different vocations<br>
+Because of his love for lacrosse and for education.<br>
+He begins the day early with a few hours of exercise,<br>
+Then heads to the Coop for the breakfast he buys.<br>
+He refocuses his mind on his second passion,<br>
+The English language, which he writes in such a fashion<br>
+That reading his essays is a godsend for his professors<br>
+Who usually act toward athletes as harsh assessors.<br>
+He flips zealously through Steinbeck and Walker<br>
+Before he returns yet again to his athletic locker.<br>
+There he dons his pads, his helmet; he grabs his stick<br>
+And out to the field he goes to run some defensive picks.<br>
+After practice, he returns the gear to their hooks,<br>
+Starting where he left off with his pen and notebooks.<br>
+Settling into bed, looking down at his cleats,<br>
+He goes to sleep happy he can awake and repeat.<br>
+This boy of twenty-one, who is perhaps barely a man,<br>
+Is astutely aware many think he is completely deadpan.<br>
+Of towering stature and team attire, he is indistinguishable <br>
+But his enthusiasm for his studies is inextinguishable.<br>
+He greets all who he sees, athletes and scholars alike<br>
+As he zooms through the campus atop his blue bike. <br>
+Many are quick to conclude he sticks to the team flank,<br>
+And accuse him of thinking he is of high social rank.<br>
+But with kindness and humor he makes his rounds,<br>
+Bringing much-needed positivity to campus grounds. <br>
+He is most accurately described as charming and empathetic,<br>
+The impression you may first get of him is only an aesthetic. <br>
 
 ---
 
 ## the academic  
 by Aurora Lewis, Haverford ‘19 
  
-i met you in your office, which was three 
-floors up in an antiquarian house 
-sinking into the ground more quickly than 
-venice. i imagined one day, perhaps 
-even before i graduated, the 
-earth would swallow up the place completely. 
-the earthworms would rejoice for that 
-historic, meaty fuel—the eaves that 
-bespoke character and a history 
-of rain, the worn velvet chairs in the lounge
-downstairs that witnessed years of crossed thighs. 
-or else i met you in the stem building, 
-an austere affair of glass and iron, 
-which rose with modern angles from the ground 
-and echoed slightly, like heart chambers. i 
-always imagined that as i walked, feet 
-clacking on the cool floors, a splash of 
-color in a white, white hall—a bloodless 
-heart, a heart pumping air. 
-there are two ways this story could go. i 
-could climb up three floors and sit and rejoice 
-in joyce. or I could spin out atoms from
-imagination: carbon, nitrogen.
-are you stem or humanistic? 
-should I say “Realistic” or “Book-Bound”?
-in tweed, a blazer, or a white lab coat?   
-your glasses are gold and wire-rimmed, or 
-they are plastic safety goggles that leave
-red crescents on your cheeks. books,
-pages folded over and inked over,
-form the leaning tower on your desk, or
-else the periodic table has a 
-home on your wall, next to a poster of
-darwin, biology’s own john lennon. 
-the real question, though, is not the state of 
-your clothes, or the manner of books that line 
-your shelves. the real question is, can your 
-un-common languages communicate? 
-will idea-phobia be the 
-xenophobia of academia, 
-a lingering hypocrisy you cannot 
-expunge completely? will you condone the
-lofty oaths of loyalty pledged by
-the pupils who build barricades out of
-lactate dehydrogenase and shelley?
-will you shelter in towers of ivory,
-utilize a jargon you guard with careful
-intent, as though it’s a do-it-yourself 
-manual to Full Enlightenment? 
-what really matters is this: will you raise a
-generation of thinkers un-thinking 
-connections, un-crossing trajectories
-and reinforcing the safety of 
-ready-made, pre-approved, straight lines of thought? 
-you say you won’t—that you educate not
-obfuscate--but sometimes, i’m not so sure
-(i swear i want to believe you mean it)
-…but i don’t know…
-i hope not. 
+i met you in your office, which was three <br>
+floors up in an antiquarian house <br>
+sinking into the ground more quickly than <br>
+venice. i imagined one day, perhaps <br>
+even before i graduated, the <br>
+earth would swallow up the place completely. <br>
+the earthworms would rejoice for that <br>
+historic, meaty fuel—the eaves that <br>
+bespoke character and a history <br>
+of rain, the worn velvet chairs in the lounge<br>
+downstairs that witnessed years of crossed thighs. <br>
+or else i met you in the stem building, <br>
+an austere affair of glass and iron, <br>
+which rose with modern angles from the ground <br>
+and echoed slightly, like heart chambers. i <br>
+always imagined that as i walked, feet <br>
+clacking on the cool floors, a splash of <br>
+color in a white, white hall—a bloodless <br>
+heart, a heart pumping air. <br>
+there are two ways this story could go. i <br>
+could climb up three floors and sit and rejoice <br>
+in joyce. or I could spin out atoms from<br>
+imagination: carbon, nitrogen.<br>
+are you stem or humanistic? <br>
+should I say “Realistic” or “Book-Bound”?<br>
+in tweed, a blazer, or a white lab coat?   <br>
+your glasses are gold and wire-rimmed, or <br>
+they are plastic safety goggles that leave <br>
+red crescents on your cheeks. books,<br>
+pages folded over and inked over,<br>
+form the leaning tower on your desk, or<br>
+else the periodic table has a <br>
+home on your wall, next to a poster of<br>
+darwin, biology’s own john lennon. <br>
+the real question, though, is not the state of <br>
+your clothes, or the manner of books that line <br>
+your shelves. the real question is, can your <br>
+un-common languages communicate? <br>
+will idea-phobia be the <br>
+xenophobia of academia, <br>
+a lingering hypocrisy you cannot <br>
+expunge completely? will you condone the<br>
+lofty oaths of loyalty pledged by<br>
+the pupils who build barricades out of<br>
+lactate dehydrogenase and shelley?<br>
+will you shelter in towers of ivory,<br>
+utilize a jargon you guard with careful<br>
+intent, as though it’s a do-it-yourself <br>
+manual to Full Enlightenment? <br>
+what really matters is this: will you raise a<br>
+generation of thinkers un-thinking <br>
+connections, un-crossing trajectories<br>
+and reinforcing the safety of <br>
+ready-made, pre-approved, straight lines of thought? <br>
+you say you won’t—that you educate not<br>
+obfuscate--but sometimes, i’m not so sure<br>
+(i swear i want to believe you mean it)<br>
+…but i don’t know…<br>
+i hope not. <br>
