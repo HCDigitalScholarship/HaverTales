@@ -3,7 +3,6 @@ layout: page
 title: The General Prologue
 ---
 
-## Contents
 {:.no_toc}
 
 * ToC
@@ -11,9 +10,9 @@ title: The General Prologue
 
 ---
 
-What that Aprill with his shoures sote
-The drought of Marche hath perced to the rote…
-Than longen folk to goon on pilgrimage…
+> What that Aprill with his shoures sote
+> The drought of Marche hath perced to the rote…
+> Than longen folk to goon on pilgrimage…
 
 In “The General Prologue,” the narrator of The Canterbury Tales explains how the coming of Spring inspires people to go on pilgrimage. He meets a group of pilgrims at an inn, joins their company, and offers a detailed description of each member of the group. The narrator’s portraits are vivid and often satirical. Clothes, facial features, and behaviors are loaded with clues about social rank and commentary on spiritual health.  
 
