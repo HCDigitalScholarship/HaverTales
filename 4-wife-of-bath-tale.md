@@ -3,7 +3,7 @@ layout: page
 title: The Wife of Bath's Tale
 ---
 <p align="center">
-  <img src="https://github.com/HCDigitalScholarship/HaverTales/raw/master/new_squirrel.png" alt="image of Haverford squirrel"/>
+  <img src="https://github.com/HCDigitalScholarship/HaverTales-BrynMarvels/raw/master/new_lutnick.png" alt="image of new Lutnick Library"/>
 </p>
 {:.no_toc}
 
@@ -24,145 +24,145 @@ By Gwynne Dulaney, Bryn Mawr, ‘20
 
 Me too.
 
-A story’s worth a thousand words.
- A reporter named Alice tried to tell mine once.
- Nice of her, but could’ve asked for my side of it first.  
-What’s in a name? Never heard of mine, I bet.  
-Name’s Rosie.
-Who wants to hear the name of a whiny little bitch anyway?  
+A story’s worth a thousand words.<br>
+ A reporter named Alice tried to tell mine once.<br>
+ Nice of her, but could’ve asked for my side of it first.  <br>
+What’s in a name? Never heard of mine, I bet.  <br>
+Name’s Rosie.<br>
+Who wants to hear the name of a whiny little bitch anyway?  <br>
 
-That’s what they all say.
-At least that’s what he told me
-With my face pressed against the dirt, 
-Grit in my teeth and blood in my eyes.
-No one wants to hear your name, darlin’,
-No one wants to hear you squeal.
+That’s what they all say.<br>
+At least that’s what he told me<br>
+With my face pressed against the dirt, <br>
+Grit in my teeth and blood in my eyes.<br>
+*No one wants to hear your name, darlin’*,<br>
+*No one wants to hear you squeal.*<br>
 
-He was from the States, as a matter of fact.
-New York, or California, or something like that.
-Sleek-looking chap, with his shiny cuff links and his stone-grey suit.
-Foreign-type, you know what I mean.
-Never had to ask for anything in his life.
-Came riding in on his big ol’ mustang
-Like a bat outta hell.
-Looked me up and down like a plucked peony
-With my Dolce dress and rhinestone heels.
-Spent two weeks’ worth of smiles and lies on that dress
-Shoving perfume bottles at rich old women in F&M.
-Bloody idiot.
+He was from the States, as a matter of fact.<br>
+New York, or California, or something like that.<br>
+Sleek-looking chap, with his shiny cuff links and his stone-grey suit.<br>
+Foreign-type, you know what I mean.<br>
+Never had to ask for anything in his life.<br>
+Came riding in on his big ol’ mustang<br>
+Like a bat outta hell.<br>
+Looked me up and down like a plucked peony<br>
+With my Dolce dress and rhinestone heels.<br>
+Spent two weeks’ worth of smiles and lies on that dress<br>
+Shoving perfume bottles at rich old women in F&M.<br>
+Bloody idiot.<br>
 
-Hey there gorgeous,
-You look good enough to eat.
-Like I’m a bowl of crisps sitting on the bar inside
-Next to my third Guinness for the night.
-Let’s go for a walk by the pond
-Got something to show ya.
+*Hey there gorgeous,*<br>
+*You look good enough to eat.*<br>
+Like I’m a bowl of crisps sitting on the bar inside<br>
+Next to my third Guinness for the night.<br>
+*Let’s go for a walk by the pond*<br>
+*Got something to show ya.*<br>
 
-Told me he was a big-time surgeon
-Spending his free time volunteering in Africa.
-Ha.
-Should’ve known to stay behind
-From a man like that
-Nothing good ever happens in a marsh.
+Told me he was a big-time surgeon<br>
+Spending his free time volunteering in Africa.<br>
+Ha.<br>
+Should’ve known to stay behind<br>
+From a man like that<br>
+Nothing good ever happens in a marsh.<br>
 
-Told him I wanted to go home
-That me mum was waiting for me.
-She never sleeps when I’m out this late.
-That Dad would be out lookin’ for me
-If I was gone too long.
+Told him I wanted to go home<br>
+That me mum was waiting for me.<br>
+*She never sleeps when I’m out this late.*<br>
+That Dad would be out lookin’ for me<br>
+If I was gone too long.<br>
 
-Lies. Lies. Lies.
-Smiled at my shivering.
-Too cold, my love? No jacket?
-Let me warm you up.
-Grabbed my chest, my arse,
-Breathed his vodka breath in my face.
-This’ll only hurt a little bit.
+Lies. Lies. Lies.<br>
+Smiled at my shivering.<br>
+*Too cold, my love? No jacket?*<br>
+*Let me warm you up.*<br>
+Grabbed my chest, my arse,<br>
+Breathed his vodka breath in my face.<br>
+*This’ll only hurt a little bit.*<br>
 
-You know the rest.
+You know the rest.<br>
 
-We tried to take him to court
-Figured we could at least get enough for university, 
-But society’s a bitch
-And the harpy of a judge was soft.
-Listened to people who said I deserved it
-With my too-short skirt and cherry-red lips.
-Should’ve chopped off his balls
-But instead he got off scots-free
-Took a year and a day to end
-Just to say it never happened.
+We tried to take him to court<br>
+Figured we could at least get enough for university, <br>
+But society’s a bitch<br>
+And the harpy of a judge was soft.<br>
+Listened to people who said I deserved it<br>
+With my too-short skirt and cherry-red lips.<br>
+Should’ve chopped off his balls<br>
+But instead he got off scots-free<br>
+Took a year and a day to end<br>
+Just to say it never happened.<br>
 
-Now he’s married to some hag
-To prove he isn’t like the rest.
-Heard he fought it tooth and nail
-But it was the only way to save his reputation.
-Heard her family paid for his lawyer
-To get her settled for life.
-At least he doesn’t have to worry about her running off
-When he gets old and gray.
+Now he’s married to some hag<br>
+To prove he isn’t like the rest.<br>
+Heard he fought it tooth and nail<br>
+But it was the only way to save his reputation.<br>
+Heard her family paid for his lawyer<br>
+To get her settled for life.<br>
+At least he doesn’t have to worry about her running off<br>
+When he gets old and gray.<br>
 
-So now he cares about everything but the looks.
-Heard her great-great-great grandmother was a witch.
-Who knows what fair concoctions she could come up with
-To make him not see the crone he’d married?
-He only sees what good he wants to see.
-Rose colored glasses, but he broke mine.
+So now he cares about everything but the looks.<br>
+Heard her great-great-great grandmother was a witch.<br>
+Who knows what fair concoctions she could come up with<br>
+To make him not see the crone he’d married?<br>
+He only sees what good he wants to see.<br>
+Rose colored glasses, but he broke mine.<br>
 
-And me? I’m still here
-Hawking flowery scents,
-Trying not to hate the world
-And the way that it has silenced me.
+And me? I’m still here<br>
+Hawking flowery scents,<br>
+Trying not to hate the world<br>
+And the way that it has silenced me.<br>
 
-I Know I’ll get hate mail every week for this
-From employers and friends and people 
-Who don’t even know him or me.
-University is just a dream.
-I don’t want people to know
-It’s none of their business
-Yet I must share my story
-So white knights never hurt simple maids like me again.
+I Know I’ll get hate mail every week for this<br>
+From employers and friends and people <br>
+Who don’t even know him or me.<br>
+University is just a dream.<br>
+I don’t want people to know<br>
+It’s none of their business<br>
+Yet I must share my story<br>
+So white knights never hurt simple maids like me again.<br>
 
-When we were in court, the judge asked him,
-What do you think this girl wants most?
-He paused and turned to his witch
-Who gave him a crooked smile.
-Your honor, I’ve asked this question
-Far and wide.
-Some women say riches, some say honor,
-Some say lust or humor or clothes,
-Some want to be considered secretive.
+When we were in court, the judge asked him,<br>
+*What do you think this girl wants most?*<br>
+He paused and turned to his witch<br>
+Who gave him a crooked smile.<br>
+*Your honor, I’ve asked this question<br>
+Far and wide.<br>
+Some women say riches, some say honor,<br>
+Some say lust or humor or clothes,<br>
+Some want to be considered secretive.*<br>
 
-Bullshit, I thought.
-He wants me to seem sneaky
-Like I’m lying up my arse.
-Read your Ovid, you two-headed pig.
-You’ll see why women can’t lie.
+Bullshit, I thought.<br>
+He wants me to seem sneaky<br>
+Like I’m lying up my arse.<br>
+Read your Ovid, you two-headed pig.<br>
+You’ll see why women can’t lie.<br>
 
-But my wife, he continues,
- the wisest person I know,
-Tells me that women want sovereignty
-From their husbands and lovers.
+*But my wife,* he continues,<br>
+ *the wisest person I know,<br>
+Tells me that women want sovereignty<br>
+From their husbands and lovers.*<br>
 
-She leered at me from her seat.
-I could have slapped her.
-How could she mock me like that
-In front of all these people?
-I feel that I will never have sovereignty from him
-After what he did to me.
+She leered at me from her seat.<br>
+I could have slapped her.<br>
+How could she mock me like that<br>
+In front of all these people?<br>
+I feel that I will never have sovereignty from him<br>
+After what he did to me.<br>
 
-But I am determined in myself
-That even if she said this in jest
-I will have that sovereignty.
-I will have that freedom.
-He will not dominate me again.
+But I am determined in myself<br>
+That even if she said this in jest<br>
+I will have that sovereignty.<br>
+I will have that freedom.<br>
+He will not dominate me again.<br>
 
-Someone’s just dropped a bottle.
-Good perfume splattered all over the floor
-Never to be collected and fully put back together again.
-Worth a fair price that one.
-I think it’s called Truth.
+Someone’s just dropped a bottle.<br>
+Good perfume splattered all over the floor<br>
+Never to be collected and fully put back together again.<br>
+Worth a fair price that one.<br>
+I think it’s called Truth.<br>
 
-What’s my name?
+What’s my name?<br>
 	
 
 ---
