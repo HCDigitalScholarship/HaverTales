@@ -5,10 +5,6 @@ title: The Wife of Bath's Prologue
 <p align="center">
   <img src="https://github.com/HCDigitalScholarship/HaverTales/raw/master/new_new_woodside.png" alt="image of Woodside cottage"/>
 </p>
-{:.no_toc}
-
-* ToC
-{:toc}
 
 ---
 > Experience, though noon auctoritee
@@ -17,6 +13,10 @@ title: The Wife of Bath's Prologue
 
 “The Wife of Bath’s Prologue” is a tale in itself. Alison, the Wife of Bath, relates the story of her five husbands. As she speaks, Allison stages a debate between two kinds of knowledge - experience and authority. How many times, she asks, can a woman get married? Is virginity really more valuable than wifehood? To answer these questions, Alison sets her own experiences and personal knowledge against the authority of Scripture and the Church Fathers. 
 
+{:.no_toc}
+
+* ToC
+{:toc}
 ---
 
 ### The Truth about Tinder
