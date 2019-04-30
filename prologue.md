@@ -1,6 +1,15 @@
 ---
-layout: poem
-title: "The General Prologue"
+layout: page
+title: The General Prologue
+author: Alex Gil
+---
+
+## Contents
+{:.no_toc}
+
+* ToC
+{:toc}
+
 ---
 
 What that Aprill with his shoures sote
@@ -9,14 +18,17 @@ Than longen folk to goon on pilgrimage…
 
 In “The General Prologue,” the narrator of The Canterbury Tales explains how the coming of Spring inspires people to go on pilgrimage. He meets a group of pilgrims at an inn, joins their company, and offers a detailed description of each member of the group. The narrator’s portraits are vivid and often satirical. Clothes, facial features, and behaviors are loaded with clues about social rank and commentary on spiritual health.  
 
+---
 
-The Campus Canterbury Tales 
+## The Campus Canterbury Tales 
 
 The portraits below were prepared by the students of ENG 201. Students responded to the following prompt:
 
 Imagine that you are preparing to write “The Campus Canterbury Tales.” Write a portrait of a “character” that you might see walking around on campus such as the English Major, the Frat Boy, or the Nerd. Consider how Chaucer makes the pilgrims in his “General Prologue” vivid and memorable and try to incorporate these techniques into your portrait. Your write-up should be about 200-400 words (about the length of Chaucer’s portraits) and you may choose to write in verse or in prose.    
 
-Money Motivated
+---
+
+## Money Motivated  
 by Jacob Landsberg, Haverford ‘21
 
 A business student there was, as driven as they come,
@@ -48,8 +60,9 @@ Straight out of “How to Get a Job, 101.”
 Yet, if he missed out on the job, it wouldn’t be too bad,
 He could always work at JP Morgan, thanks to dad.
 
+---
 
-The Pokémon Go Player
+## The Pokémon Go Player  
 by Helena Frisbie-Firsching, Haverford ‘21
  
 There was a fellow arriving to Cope Field,
@@ -83,8 +96,9 @@ To hatch eggs and maybe catch a shiny.
 Always with his phone out and looking down,
 He scuttles his way throughout Havertown.
 
+---
 
-The Haverbro
+## The Haverbro  
 by Caroline Ford, Haverford ‘21
  
 A HAVERBRO there was, an athlete, at that,
@@ -116,8 +130,9 @@ And well can he consume much Natty Lite.
 He is full ready to drink, juul, and dance,
 And perhaps give his homework just one glance.
 
+---
 
-The Haverbro 
+## The Haverbro   
 by Gwynne Dulaney, Bryn Mawr ‘20
  
 There was but once a Haverbro
@@ -163,8 +178,9 @@ Without their positivity?
 Haverbros, we salute to you,
 Our bros so noble and so true.
 
+---
 
-The F--kboy
+## The F--kboy  
 by Becca Garfinkle, Bryn Mawr ‘20
  
 An F-CKBOY there was, upon the grounds, 
@@ -206,8 +222,9 @@ Because they have no other friends.
 Ladies if you see him stay away, 
 I promise you he is no good lay.  
 
+---
 
-The Student-Athlete
+## The Student-Athlete  
 By Aine Carolan, Haverford ‘20
 
 At Haverford there was a coy STUDENT-ATHLETE;
@@ -243,7 +260,9 @@ Bringing much-needed positivity to campus grounds.
 He is most accurately described as charming and empathetic,
 The impression you may first get of him is only an aesthetic. 
 
-the academic
+---
+
+## the academic  
 by Aurora Lewis, Haverford ‘19 
  
 i met you in your office, which was three 
