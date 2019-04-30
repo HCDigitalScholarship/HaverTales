@@ -6,11 +6,6 @@ title: The Knight's Tale
   <img src="https://github.com/HCDigitalScholarship/HaverTales/raw/master/new_new_banner.png" alt="Woodblock printers look at a man working on a computer"/>
 </p>
 
-{:.no_toc}
-
-* ToC
-{:toc}
-
 > Two youge knightes ligginge by and by,
 > Bothe in oon armes, wroght ful richely,
 > Of which two, Arcita highte that oon,
@@ -18,6 +13,10 @@ title: The Knight's Tale
 
 “The Knight’s Tale” tells the story of two knights, Arcite and Palamon who are captured and imprisoned by Theseus, duke of Athens. The knights are cousins and sworn comrades but their friendship quickly breaks down as they compete for the love of the same woman - Emily.   
 
+{:.no_toc}
+
+* ToC
+{:toc}
 ---
 ## “Emma and The Blue Knights”   
 by Becca Garfinkle, Bryn Mawr ‘20
