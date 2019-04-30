@@ -3,7 +3,7 @@ layout: page
 title: The Knight's Tale
 ---
 <p align="center">
-  <img src="https://github.com/HCDigitalScholarship/HaverTales/raw/master/new_banner.png" alt="Woodblock printers look at a man working on a computer"/>
+  <img src="https://github.com/HCDigitalScholarship/HaverTales/raw/master/new_new_banner.png" alt="Woodblock printers look at a man working on a computer"/>
 </p>
 
 {:.no_toc}
