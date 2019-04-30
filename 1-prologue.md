@@ -2,6 +2,11 @@
 layout: page
 title: The General Prologue
 ---
+## The Campus Canterbury Tales 
+
+The portraits below were prepared by the students of ENG 201. Students responded to the following prompt:
+
+Imagine that you are preparing to write “The Campus Canterbury Tales.” Write a portrait of a “character” that you might see walking around on campus such as the English Major, the Frat Boy, or the Nerd. Consider how Chaucer makes the pilgrims in his “General Prologue” vivid and memorable and try to incorporate these techniques into your portrait. Your write-up should be about 200-400 words (about the length of Chaucer’s portraits) and you may choose to write in verse or in prose.    
 
 {:.no_toc}
 
@@ -14,15 +19,7 @@ title: The General Prologue
 > The drought of Marche hath perced to the rote…
 > Than longen folk to goon on pilgrimage…
 
-In “The General Prologue,” the narrator of The Canterbury Tales explains how the coming of Spring inspires people to go on pilgrimage. He meets a group of pilgrims at an inn, joins their company, and offers a detailed description of each member of the group. The narrator’s portraits are vivid and often satirical. Clothes, facial features, and behaviors are loaded with clues about social rank and commentary on spiritual health.  
-
----
-
-## The Campus Canterbury Tales 
-
-The portraits below were prepared by the students of ENG 201. Students responded to the following prompt:
-
-Imagine that you are preparing to write “The Campus Canterbury Tales.” Write a portrait of a “character” that you might see walking around on campus such as the English Major, the Frat Boy, or the Nerd. Consider how Chaucer makes the pilgrims in his “General Prologue” vivid and memorable and try to incorporate these techniques into your portrait. Your write-up should be about 200-400 words (about the length of Chaucer’s portraits) and you may choose to write in verse or in prose.    
+In “The General Prologue,” the narrator of *The Canterbury Tales* explains how the coming of Spring inspires people to go on pilgrimage. He meets a group of pilgrims at an inn, joins their company, and offers a detailed description of each member of the group. The narrator’s portraits are vivid and often satirical. Clothes, facial features, and behaviors are loaded with clues about social rank and commentary on spiritual health.  
 
 ---
 
