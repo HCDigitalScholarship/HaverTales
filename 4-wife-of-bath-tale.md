@@ -5,10 +5,6 @@ title: The Wife of Bath's Tale
 <p align="center">
   <img src="https://github.com/HCDigitalScholarship/HaverTales-BrynMarvels/raw/master/new_lutnick.png" alt="image of new Lutnick Library"/>
 </p>
-{:.no_toc}
-
-* ToC
-{:toc}
 
 ---
 > He saugh a mayde walkinge him birforn,
@@ -17,6 +13,10 @@ title: The Wife of Bath's Tale
 
 “The Wife of Bath’s Tale” tells the story of a knight who undergoes a trial for raping a maiden. Rather than being immediately put to the death for the crime, the knight is allowed one year to answer the question ‘What do women most desire?’ The answer which saves him is that women want sovereignty - mastery over themselves and their desires.
 
+{:.no_toc}
+
+* ToC
+{:toc}
 ---
 
 ## What’s A Name?   
