@@ -1,7 +1,6 @@
 ---
 layout: page
 title: The General Prologue
-author: Alex Gil
 ---
 
 ## Contents
