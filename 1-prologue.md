@@ -2,7 +2,9 @@
 layout: page
 title: The General Prologue
 ---
-
+<p align="center">
+  <img src="https://github.com/HCDigitalScholarship/HaverTales-BrynMarvels/raw/master/uni_duckpond.png" alt="Picture of the duck pond styled like a wall hanging"/>
+</p>
 {:.no_toc}
 
 * ToC
