@@ -9,9 +9,9 @@ title: The Wife of Bath's Tale
 {:toc}
 
 ---
-He saugh a mayde walkinge him birforn,
-Of which mayde anon, maugree hir heed,
-By verray force he rafte hire maydenheed. 
+> He saugh a mayde walkinge him birforn,
+> Of which mayde anon, maugree hir heed,
+> By verray force he rafte hire maydenheed. 
 
 “The Wife of Bath’s Tale” tells the story of a knight who undergoes a trial for raping a maiden. Rather than being immediately put to the death for the crime, the knight is allowed one year to answer the question ‘What do women most desire?’ The answer which saves him is that women want sovereignty - mastery over themselves and their desires.
 
