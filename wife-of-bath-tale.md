@@ -3,7 +3,6 @@ layout: page
 title: The Wife of Bath's Tale
 ---
 
-## Contents
 {:.no_toc}
 
 * ToC
