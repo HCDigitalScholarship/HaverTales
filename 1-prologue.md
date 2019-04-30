@@ -2,11 +2,6 @@
 layout: page
 title: The General Prologue
 ---
-## The Campus Canterbury Tales 
-
-The portraits below were prepared by the students of ENG 201. Students responded to the following prompt:
-
-Imagine that you are preparing to write “The Campus Canterbury Tales.” Write a portrait of a “character” that you might see walking around on campus such as the English Major, the Frat Boy, or the Nerd. Consider how Chaucer makes the pilgrims in his “General Prologue” vivid and memorable and try to incorporate these techniques into your portrait. Your write-up should be about 200-400 words (about the length of Chaucer’s portraits) and you may choose to write in verse or in prose.    
 
 {:.no_toc}
 
