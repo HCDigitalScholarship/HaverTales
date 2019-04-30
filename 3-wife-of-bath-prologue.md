@@ -2,7 +2,9 @@
 layout: page
 title: The Wife of Bath's Prologue
 ---
-
+<p align="center">
+  <img src="https://github.com/HCDigitalScholarship/HaverTales/raw/master/new_woodside.png" alt="image of Woodside cottage"/>
+</p>
 {:.no_toc}
 
 * ToC
