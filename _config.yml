@@ -1,10 +1,8 @@
 remote_theme: minicomp/ed
 
-title:               Ed.
-tagline:             'a jekyll theme for minimal editions'
-description:         'Ed is a Jekyll theme designed for textual editors based on minimal computing principles, and focused on legibility and flexibility.'
-url:                 'http://minicomp.github.io'
-baseurl:             '/ed'
+title:               Haver Tales and Bryn Marvels: Bi-Co Adaptations of Geoffrey Chaucer’s The Canterbury Tales 
+tagline:             'an adaptation project created by the students of Sarah Watson’s ENG 201 class at Haverford College'
+description:         ''
 
 # About/contact
 author:
