@@ -1,5 +1,5 @@
 ---
-layout: poem
+layout: page
 title: The Knight's Tale
 ---
 
