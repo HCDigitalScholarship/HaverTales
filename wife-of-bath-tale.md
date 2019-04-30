@@ -3,14 +3,22 @@ layout: page
 title: The Wife of Bath's Tale
 ---
 
+## Contents
+{:.no_toc}
+
+* ToC
+{:toc}
+
+---
 He saugh a mayde walkinge him birforn,
 Of which mayde anon, maugree hir heed,
 By verray force he rafte hire maydenheed. 
 
 “The Wife of Bath’s Tale” tells the story of a knight who undergoes a trial for raping a maiden. Rather than being immediately put to the death for the crime, the knight is allowed one year to answer the question ‘What do women most desire?’ The answer which saves him is that women want sovereignty - mastery over themselves and their desires.
 
+---
 
-What’s A Name? 
+## What’s A Name?   
 By Gwynne Dulaney, Bryn Mawr, ‘20
 
 Me too.
@@ -156,8 +164,9 @@ I think it’s called Truth.
 What’s my name?
 	
 
+---
 
-The Loathly Lawyer
+## The Loathly Lawyer  
 By Shayleah Jenkins, Haverford, 22’
 
 One evening the weather was warm and the heat of the setting sun became trapped inside the man’s car as he sat in traffic. He pondered who he might hire to fill the secretary position in his office. Preferably a pretty little thing, he thought to himself. But the heat interrupted his thoughts, forcing him to unroll his window. In doing so, something caught his eye: a long, bare leg, attached to a heel-clad foot. His eyes chased the limb upwards, reveling in the miniskirt that hung far above her knee. The trajectory of his gaze continued onwards, until he had ogled her from head to toe. He shifted the car into park (traffic won’t move any time soon, he thought) and continued watching as the beautiful waitress cleaned tables in front of the restaurant.
