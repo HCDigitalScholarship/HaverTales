@@ -2,7 +2,9 @@
 layout: default
 title: "Haver Tales and Bryn Marvels: Bi-Co Adaptations of Geoffrey Chaucer’s *The Canterbury Tales*"
 ---
-![](http://www.samplereality.com/wp-content/uploads/2012/02/typography.png)
+<p align="center">
+  <img src="http://www.samplereality.com/wp-content/uploads/2012/02/typography.png" alt="Woodblock printers look at a man working on a computer"/>
+</p>
 
 Haver Tales and Bryn Marvels is an adaptation project created by the students of Sarah Watson’s ENG 201 class at Haverford College. The project aims to collect and share student adaptations of Geoffrey Chaucer’s The Canterbury Tales (c.1400). The portraits, prologues, and tales collected here are as diverse as Chaucer’s pilgrims, presenting A Capella singers, Pre-Med students, Nerds and Lacrosse Players, and ranging in form from poetry to music to visual arts. Many of the adaptations seek to bring Chaucer’s text into dialogue with current social and political conversations, deftly collapsing the distance between medieval and modern. 
 
