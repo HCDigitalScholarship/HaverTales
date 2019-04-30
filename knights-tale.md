@@ -1,6 +1,6 @@
 ---
 layout: poem
-title: "The Knight's Tale"
+title: The Knight's Tale
 ---
 
 Two youge knightes ligginge by and by,
@@ -11,8 +11,8 @@ And that other knight highte Palamon.
 “The Knight’s Tale” tells the story of two knights, Arcite and Palamon who are captured and imprisoned by Theseus, duke of Athens. The knights are cousins and sworn comrades but their friendship quickly breaks down as they compete for the love of the same woman - Emily.   
 
 
-“Emma and The Blue Knights” 
-By Becca Garfinkle, Bryn Mawr ‘20
+## “Emma and The Blue Knights”   
+by Becca Garfinkle, Bryn Mawr ‘20
 
 In Athens, Georgia at the start of spring, 
 All across the fields the lacrosse sticks swing. 
