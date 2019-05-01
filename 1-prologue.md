@@ -9,7 +9,7 @@ title: The General Prologue
 
 ---
 
-> What that Aprill with his shoures sote<br>
+> Whan that Aprill with his shoures sote<br>
 > The drought of Marche hath perced to the rote…<br>
 > Than longen folk to goon on pilgrimage…<br>
 
