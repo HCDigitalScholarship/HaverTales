@@ -7,9 +7,9 @@ title: The Wife of Bath's Prologue
 </p>
 
 ---
-> Experience, though noon auctoritee
-> Were in this world, is right ynough for me
-> To speke of wo that is in mariage
+> Experience, though noon auctoritee<br>
+> Were in this world, is right ynough for me<br>
+> To speke of wo that is in mariage<br>
 
 “The Wife of Bath’s Prologue” is a tale in itself. Alison, the Wife of Bath, relates the story of her five husbands. As she speaks, Allison stages a debate between two kinds of knowledge - experience and authority. How many times, she asks, can a woman get married? Is virginity really more valuable than wifehood? To answer these questions, Alison sets her own experiences and personal knowledge against the authority of Scripture and the Church Fathers. 
 
