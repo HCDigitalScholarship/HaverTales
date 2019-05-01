@@ -3,15 +3,15 @@ layout: page
 title: The General Prologue
 ---
 <p align="center">
-  <img src="https://github.com/HCDigitalScholarship/HaverTales-BrynMarvels/raw/master/uni_duckpond.png" alt="Picture of the duck pond styled like a wall hanging"/>
+  <img style="width: 50%;" src="https://github.com/HCDigitalScholarship/HaverTales-BrynMarvels/raw/master/uni_duckpond.png" alt="Picture of the duck pond styled like a wall hanging"/>
 </p>
 
 
 ---
 
-> What that Aprill with his shoures sote
-> The drought of Marche hath perced to the rote…
-> Than longen folk to goon on pilgrimage…
+> What that Aprill with his shoures sote<br>
+> The drought of Marche hath perced to the rote…<br>
+> Than longen folk to goon on pilgrimage…<br>
 
 In “The General Prologue,” the narrator of *The Canterbury Tales* explains how the coming of Spring inspires people to go on pilgrimage. He meets a group of pilgrims at an inn, joins their company, and offers a detailed description of each member of the group. The narrator’s portraits are vivid and often satirical. Clothes, facial features, and behaviors are loaded with clues about social rank and commentary on spiritual health.  
 
