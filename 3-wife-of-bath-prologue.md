@@ -19,7 +19,7 @@ title: The Wife of Bath's Prologue
 {:toc}
 ---
 
-### The Truth about Tinder<br>
+### The Truth about Tinder
 ### Allison, Residential Advisor for Hall 7, Kerrey Hall, The New School  
 
 By Aine Carolan, Haverford ‘20
