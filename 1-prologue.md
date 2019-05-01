@@ -318,3 +318,31 @@ obfuscate--but sometimes, i’m not so sure<br>
 (i swear i want to believe you mean it)<br>
 …but i don’t know…<br>
 i hope not. <br>
+
+---
+
+## The Swiper 
+By Marley Asplundh, Haverford '19<br>
+
+The entrance of the DC is watched by a SWIPER<br>
+Who metes out the fate of each hungry griper,<br>
+Hoping they have meals to last the semester.<br>
+If on you she has mercy, be sure to bless her.<br>
+She sits on her stool as each eater walks by,<br>
+Swiping, counting, charging, sometimes with a sigh,<br>
+For when boorish students walk in without “thank you,”<br>
+She still swipes folks through, even those who out rank you.<br>
+Her hair always styled, her nails without chip,<br>
+She’ll scroll through her phone keeping up with what’s hip.<br>
+As well, she’ll check weather, because as all know,<br>
+There’s nothing on earth she detests more than snow<br>
+Or cold or wind on a sunnier day.<br>
+“I’d vote for no winter, if I had my way!”<br>
+This Swiper has watched us and helped us to food<br>
+Since the first days we got here, so painfully new.<br>
+Although we just see her but seconds a day,<br>
+Her view is of us for each minute she stays<br>
+At her post, on her perch, her hand in one motion<br>
+While she dreams and talks of naught but the ocean.<br>
+Though not much thanks she gets in this job,<br>
+Hers is an importance unmatched by a mob.<br>
