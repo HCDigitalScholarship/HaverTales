@@ -216,6 +216,6 @@ The man argued that he had made her equal as possible by giving her that raise, 
 
 ## The Devil Stands in the Door
 <video controls>
-  <source src="https://haverford.box.com/shared/static/vvlq86li274591qovzhnok6y0qjd5feg.mp4" type="video/mp4">
+  <source src="https://nyc3.digitaloceanspaces.com/bolsas/TheDevilStandsintheDoor.mp4" type="video/mp4">
   Your browser does not support HTML5 video.
 </video>
