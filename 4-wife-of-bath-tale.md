@@ -212,3 +212,10 @@ The man argued that he had made her equal as possible by giving her that raise, 
 
 “No dice,” she said. “My wife wouldn’t like me skipping out on her to eat dinner with a man who sees himself as my savior. Sometimes what women want, men simply can’t give!”
  
+---
+
+## The Devil Stands in the Door
+<video controls>
+  <source src="https://haverford.box.com/shared/static/vvlq86li274591qovzhnok6y0qjd5feg.mp4" type="video/mp4">
+  Your browser does not support HTML5 video.
+</video>
