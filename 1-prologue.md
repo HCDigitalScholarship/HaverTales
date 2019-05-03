@@ -346,3 +346,39 @@ At her post, on her perch, her hand in one motion<br>
 While she dreams and talks of naught but the ocean.<br>
 Though not much thanks she gets in this job,<br>
 Hers is an importance unmatched by a mob.<br>
+
+---
+
+## The Pre-Med Student
+By Hanna Kopits, Haverford ‘21<br>
+
+See here the pre-med student, disheveled and unclean, <br>
+Two hours or sleep, coffee, and forgetting to eat keeping her lean. <br>
+The bags under her eyes larger than the one on her back, <br>
+Internships apps, three labs a week, and professors cutting her no slack. <br>
+Eight MCAT books piled high on her desk all preparing for one test<br>
+As she works day and night and the stress allows her no rest.  <br>
+Her parents hope that one day she’ll be a surgeon, <br>
+All she wants to do is go through college and have friends like a real person. <br>
+See her in the Sci-li doing problem sets until she cries, <br>
+But she pretends to do it with ease, no one sees through her lies<br>
+With her large coffee and iPad, she nods off in Orgo, <br>
+Then realizes she has a lab quiz due during lunch and screams “OH NO,”<br>
+She runs off in a panic, sprinting across Founder’s Green<br>
+To beg for an extension from her professor without causing a scene.<br> 
+Without close friends, she never goes out<br>
+Friday or Saturday, she’s staying in without a doubt.<br>
+Her backpack is stuffed to the bursting<br>
+Of notebooks, textbooks, and a poster; she’s cursing<br>
+Her choice of career at every chance,<br>
+But puffs up with pride every time she’s asked<br>
+“What’s your major?” from each new person she meets<br>
+“I’m a Chem, Psych double major with a Biochem minor” and misses no beats.<br> 
+The only thing she wishes for is twelve hours more in a day<br>
+So that she can do independent research, in which she has a say.<br> 
+Running reactions for seniors and pouring colorless liquids, <br>
+Into test tubes and dishes. Her research is on lipids, <br>
+And how a bilayer can be broken down using proteins that cleave. <br>
+She spends her nights dreaming of everything she could achieve, <br>
+At Harvard, or Hopkins, or NYU. <br>
+But then she realizes that she still has to get through the next week or two.<br>
