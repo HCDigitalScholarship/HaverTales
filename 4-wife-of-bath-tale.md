@@ -215,6 +215,7 @@ The man argued that he had made her equal as possible by giving her that raise, 
 ---
 
 ## The Devil Stands in the Door
+By Claire Nicholas, Haverford '19.<br>
 <video controls preload> 
 <source src="https://nyc3.digitaloceanspaces.com/bolsas/TheDevilStandsintheDoor.mp4"></source> 
 </video>
