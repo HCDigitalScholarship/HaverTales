@@ -215,7 +215,7 @@ The man argued that he had made her equal as possible by giving her that raise, 
 ---
 
 ## The Devil Stands in the Door
-<video controls>
-  <source src="https://nyc3.digitaloceanspaces.com/bolsas/TheDevilStandsintheDoor.mp4" type="video/mp4">
-  Your browser does not support HTML5 video.
+<video controls preload> 
+<source src="https://nyc3.digitaloceanspaces.com/bolsas/TheDevilStandsintheDoor.mp4"></source> 
 </video>
+
