@@ -3,7 +3,7 @@ layout: page
 title: The General Prologue
 ---
 <p align="center">
-  <img src="https://github.com/HCDigitalScholarship/HaverTales-BrynMarvels/raw/master/new_new_new_ducks.png" alt="Picture of the duck pond styled like a wood cut print"/>
+  <img style="width:70%" src="https://github.com/HCDigitalScholarship/HaverTales-BrynMarvels/raw/master/new_new_new_ducks.png" alt="Picture of the duck pond styled like a wood cut print"/>
 </p>
 
 
