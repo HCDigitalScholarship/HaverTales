@@ -15,10 +15,58 @@ title: The General Prologue
 
 In “The General Prologue,” the narrator of *The Canterbury Tales* explains how the coming of Spring inspires people to go on pilgrimage. He meets a group of pilgrims at an inn, joins their company, and offers a detailed description of each member of the group. The narrator’s portraits are vivid and often satirical. Clothes, facial features, and behaviors are loaded with clues about social rank and commentary on spiritual health.  
 
+## The Campus Canterbury Tales
+
+The portraits below were prepared by the students of ENG 201 in response to a creative assignment. The result is a collection of vivid portraits of common campus figures.  
+
 {:.no_toc}
 
 * ToC
 {:toc}
+---
+
+
+## Portraits 
+The Campus Canterbury Tales
+
+The portraits below were prepared by the students of ENG 201 in response to a creative assignment. The result is a collection of vivid portraits of common campus figures. 
+
+The Neat Freak
+
+by Carrie Zhang, Haverford ‘22
+
+A NEAT FREAK there was, it was her plan<br>
+Fro the tyme that she first bigan<br>
+To live in her dorm to have labeled drawers,<br>
+categorized shelves, and vacuumed floors.<br>
+Ful worthily organized was her bedroom at home,<br>
+And there she had learned, like many others,<br>
+Her habits of cleanliness, instilled by her mother,<br>
+Which she carried with her when she went to college<br>
+To buttress her in her pursuit of knowledge.<br>
+At class when she got a handout or a flyer,<br>
+she put it immediately into her binder;<br>
+Her notebook was arranged by subject;<br>
+No detail did she neglect.<br>
+Her debit card was in her wallet,<br>
+Which she kept in a pocket of her jacket,<br>
+And this she hung on her closet door,<br>
+Where it was easily reached for. <br>
+Towels, personal care items, and office things<br>
+were kept in clear stacked storage bins<br>
+And under her bed, she put anything leftover,<br>
+so that it would not be tripped over. <br>
+On weekends she washed the cases of her pillows<br>
+and all her clothes, for a couple nickels.<br>
+She plucked out the hairs which tended to, sadly,<br>
+fall into compartments in her shower caddy.<br>
+She always made sure to throw away food<br>
+Or rats might come invade her room.<br>
+On weekends and Friday nights, when there were parties,<br>
+Upstairs she heard voices and stomping feet,<br>
+But as long as her room looked neat,<br>
+She closed her eyes, and slept at ease. <br>
+
 ---
 
 ## Money Motivated  
@@ -382,3 +430,202 @@ And how a bilayer can be broken down using proteins that cleave. <br>
 She spends her nights dreaming of everything she could achieve, <br>
 At Harvard, or Hopkins, or NYU. <br>
 But then she realizes that she still has to get through the next week or two.<br>
+
+---
+
+## The Blue Bus Tales 
+
+by Caroline Ford, Haverford ‘21
+
+When October came, a cascade of hues<br>
+Of beautiful leaves which the trees did lose<br>
+Carried and swirled by the blustery wind, <br>
+The foliage on campus greatly thinned.<br>
+In autumn’s crisp air, well set in their pace<br>
+The students rushed ‘round as if in a race.<br>
+While striding with brisk purpose and hustle,<br>
+A modest bus stop amidst the bustle<br>
+Awaited the monstrous, azure-tinged cube<br>
+That those in the Bi-Co know as the ‘Bloob.’<br>
+This majestic Blue Bus, honored and true,<br>
+Was loyal to its schedule through and through.<br>
+From Bryn Mawr to Haverford it would trek,<br>
+Whipping around turns; some feared it might wreck.<br>
+With its rumbling engine and hissing brakes<br>
+It cruised over potholes with mighty shakes<br>
+Like the Knight Bus, weaving its way through cars,<br>
+Speeding haphazardly across the tar.<br>
+When at four o’clock sharp this beast arrived,<br>
+The overflowing crowd clambered inside.<br>
+Students packed together, cramming the bus<br>
+And tried to find a seat without much fuss.<br>
+Once all were seated or standing in place<br>
+Positioned together with little space,<br>
+They held on tight as the bus surged forward<br>
+Into battle, prepared and well-armored.<br>
+But alas, as this machine proceeded,<br>
+Traffic ahead could not go unheeded.<br>
+Not one minute after reaching the road<br>
+Of Montgomery Ave, the Blue Bus slowed<br>
+Until its mighty wheels rolled to a stop.<br>
+Now stuck in a standstill on the blacktop,<br>
+Stranded, no WiFi or working AC,<br>
+The occupants all groaned in agony.<br>
+With the bus filled to max, no room to stand,<br>
+Five ‘Ford students formed an unlikely band<br>
+Of strangers, left to their own devices<br>
+In the midst of this congested crisis.<br>
+Stagnant, bored, with nothing better to do,<br>
+An idea formed from this motley crew<br>
+To share with each other several tales <br>
+(To pass time more quickly, if all else fails)<br>
+Originating from past reference,<br>
+Imagination, or experience.<br>
+An odd collection is our company:<br>
+Here I’ll begin to describe them to thee.<br>
+
+A HAVERBRO first, a lax bro, at that:<br>
+An esteemed social caste much like a frat.<br>
+He took up the entire Blue Bus seat<br>
+Focused on finding something sage to Tweet.<br>
+One who reveres social status and skill,<br>
+This athlete cares most for FIFA and chill.<br>
+A white boy, ™, with dirty blond hair,<br>
+Tall in his stature, and pale face shaved bare.<br>
+A GIAC regular to lift and run<br>
+When outside of practice to condition,<br>
+Always trying to remain hydrated<br>
+With a gallon water jug, quite weighted.<br>
+On the DC’s right, with his Gatorade,<br>
+He’d sit and embody the Nike trade<br>
+Surrounded by his many fellow bros<br>
+Discussing economics, I suppose.<br>
+Here, his Lacrosse stick looped through his backpack,<br>
+A ‘Ford sweatshirt he sports, bright red and black,<br>
+Preppy Lacoste shorts, Adidas to match-<br>
+So that any girl would think him a catch.<br>
+A white snapback worn low atop his head<br>
+While he sits, his legs generously spread;<br>
+His position conveying confidence<br>
+In both frank manner and ego immense.<br>
+And alas, when the weekend comes again, <br>
+As parties arrive, ev’ry now and then;<br>
+A pong champion, he’d play through the night,<br>
+And well can he consume much Natty Lite.<br>
+Always full ready to drink, juul, and dance,<br>
+And perhaps give his homework just one glance.<br>
+
+Next was a SINGER of A CAPPELLA<br>
+Sat by the window, an uptight fella<br>
+Whose judgmental eyes were sharp as a blade.<br>
+His posture was firm and always conveyed <br>
+Command of his peers, with a pointedly<br>
+Smug smile that purred, “everybody loves me.”<br>
+Brown hair slicked back smoothly by a thick gel, <br>
+Loud shirt screaming at a high decibel,<br>
+And moody blue jeans, purposefully ripped.<br>
+He crossed his legs while he tastefully sipped<br>
+From his pristine tumbler, of Starbucks brand:<br>
+A rare sight without his pitch pipe in hand.<br>
+This skilled performer, sure of his talent,<br>
+Whose musical passion was so ardent<br>
+Found singing of the utmost importance,<br>
+Accepting nothing short of excellence.<br>
+Quick to interject with notes about keys,<br>
+Comments on acoustics and harmonies.<br>
+An effortless tenor with heart and soul,<br>
+“So melodic and rich!” his fans extolled.<br>
+Of his musical gift, all were aware,<br>
+And if they weren’t, he was happy to share<br>
+The scope of his musical expertise,<br>
+And discussions of himself rarely ceased.<br>
+To remain the center of attention,<br>
+He’d break into song at any mention,<br>
+Of some musicals, soundtracks, and chorus.<br>
+Few could deny: his voice was sonorous.<br>
+
+On his left was a PROCRASTINATOR,<br>
+A real responsibility skater.<br>
+Out of breath from sprinting to make the bus,<br>
+For an on-time arrival was hopeless.<br>
+She, overwhelmed and overcommitted,<br>
+Was late to class, even later to bed.<br>
+Although already weeks behind on work,<br>
+This stressed-out sophomore tried not to shirk<br>
+Her projects and tests, but she fell behind<br>
+For she’s rarely able to plan her time.<br>
+Frequently asking profs for extensions<br>
+To quickly finish problem set questions.<br>
+Determined to live out the college life,<br>
+She neglects her studies to avoid strife;<br>
+Juggling a job, five credits, and hobbies,<br>
+She functions just on Monster and coffees.<br>
+She always runs on three hours of sleep<br>
+With permanent eye bags that run skin-deep,<br> 
+Disheveled, tired; you’d not hear the end<br>
+Of how much time on assignments she’d spend<br>
+Putting them off, for as long as she could,<br>
+But unsure if she’d finish them for good.<br>
+She’s worn the same shirt from Sunday onwards<br>
+And all the while it has been on backwards;<br>
+Her nails are bitten right down to the quick<br>
+(An anxious habit she has yet to kick);<br>
+Her jet-black hair is in a makeshift bun:<br>
+Trying to look composed when still undone.<br>
+
+To the side stood the irksome FREETHINKER,<br>
+The most adversarial in nature.<br>
+A “nice guy,” angered that girls choose to date<br>
+Jerks over himself, the optimal mate.<br>
+A true patron of free speech and debate:<br>
+He favors playing devil’s advocate.<br>
+This worthy man’s an avid news reader<br>
+And the Haverford Freethinkers’ leader.<br>
+Who would scorn his display of bravery<br>
+As a conservative at Plenary?<br>
+When he took to the mic to speak his mind<br>
+And came out to his classmates all combined,<br>
+As a Republican, the most oppressed<br>
+In the whole college, unless unconfessed.<br>
+Dressed in a blue polo and pressed khakis, <br>
+Look complete with loafers; like his lackeys,<br>
+Occupied with discourse and politics,<br>
+He was adept at disputing nitpicks.<br>
+In class, he takes up a great deal of space<br>
+Stifling others’ voices with his deep bass<br>
+And monopolizing each discussion.<br>
+With his ethical views, quite outspoken<br>
+He’d serve as a major disruptive force;<br>
+Of arguments, he was a constant source.<br>
+Most deemed his opinions problematic<br>
+And found him far less than charismatic<br>
+Because of his sexist, racist beliefs,<br>
+And his controversial Facebook debriefs.<br>
+
+Last was a GEEK, a quirky introvert,<br>
+Vastly clever, and prepared to subvert<br>
+Any stereotypes that came to pass:<br>
+The only woman in her comp sci class.<br>
+Her backpack was covered in flashy pins<br>
+Of varied fandoms she was involved in<br>
+Like Harry Potter and SuperWhoLock;<br>
+Fan merch from head to toe, down to each sock.<br>
+Her graphic tee featured a bright design<br>
+Of an anime character’s outline<br>
+Which was her favorite to marathon <br>
+Between classes and the days’ goings-on.<br>
+She’d speak in movie quotes and allusions <br>
+From her treasured books, shows, and fanfictions:<br>
+Her knowledge of ev’ry adaptation<br>
+Knows no bounds, and could never be dampened.<br>
+A true Marvel comic book connoisseur<br>
+And certainly, no gaming amateur<br>
+With a PlayStation, Switch, and Xbox One:<br>
+Up to date with the latest edition.<br>
+An aficionado in board games<br>
+Like Catan and other tabletop names.<br>
+At Nerd House she prefers to spend her time,<br>
+A quiet space she considers sublime;<br>
+Compared to parties in 19 basement,<br>
+Curling up with a book is more prudent.<br>
+
