@@ -687,3 +687,125 @@ Grumbled approval filled the room, drinks were poured. The bowl took on a lovely
 
 Nick tried to protest but Harold cut him off insisting the rule was final. The winner of the night would receive the honor of shot gun to the airport, while the loser would finish the bowl of punch before the night was through. To tell their tale first they chose the time old tradition of nose goes. Kate was the slowest on the draw and the first to tell her tale. 
 
+---
+
+## Tales from the Women’s Ward
+
+by Aurora Lewis, Haverford ‘19
+
+Sunshine in the Group Room, winter’s joke—<br>
+we’re deep in leap year February, but<br>
+might as well be April, with sun that hot<br>
+and honey. Know what else is funny? Margie <br>
+mouth pressed open against the window glass<br>
+trying to devour light that tastes of<br>
+tulips and Easter egg innocence, her<br>
+open lips an echo of Munch’s Scream. <br>
+(And I know she screams in dreams sometimes, like <br>
+a child might.) Her tongue kisses leave behind <br>
+	saliva stains on the panes. <br>
+
+Me? I am senseless, desensitized<br>
+ by light on linoleum, and the *fuck you* of <br>
+a schizo in solitary (again)<br>
+whose screams duet with the percussion of <br>
+fists a room over, where Bertha’s anger <br>
+has gotten loose. I came last week, <br>
+the day they put the new toilet in. That<br> 
+was about how my first day went, with the <br>
+plumber hauling in the urinal, mouth <br>
+moving round the stem of a Lucky Strike. <br>
+There was a boy in the waiting room too, <br>
+must have been nine, approaching double digits <br>
+on frozen time-- here they take the clocks off <br>
+of walls, and jeans and sneakers off of you.  <br>
+(Shoelaces are easy garrotes in the <br>
+violent wing, and lazy nooses for those <br>
+    aping Monroe.) <br>
+
+But Group is about to begin. There are <br>
+thirty of us, all women, some full grown,<br>
+though Millie is only 16. Snow pale,<br>
+green veins running deep beneath translucent<br>
+skin. You’d call her beautiful<br>
+and the nurse who raped her would agree.<br>
+She’s open about it, though, not resigned<br>
+and weepy or wilting silently; her<br>
+favorite word is bastard, as in that ‘no<br>
+good dirty bastard thought that he could<br>
+own me. Fuck that.’ They say she’ll be out of<br>
+here soon, and one day maybe even free.  <br>
+We sit in a circle of chairs, unless <br>
+you’re Em or Bertha. Then you’re slumping sloppy;<br>
+Em coasts by on a Methadone high, and<br>
+the Seroquel hits Bertha like a freight. <br>
+Doc must have set her straight; she’s fairly<br>
+docile and drooling on the floor. Upped her<br>
+meds—when she wakes she’ll call it mind-rape,<br>
+while Em will ask for more. Em got into <br>
+sex work and heroine, but ended up <br>
+homeless. She had to choose between a room <br>
+or her daily fix, and the drugs liked her best.<br> 
+Bertha is schizophrenic, once jailed for<br>
+attacking a weed-dealing boyfriend<br>
+prone to violence. Claimed it was self-defense--<br>
+judge disagreed. When lucid, she inveighs <br>
+against the prison guards who “raped her up <br>
+the ass!” Edits are supplied by a nurse, <br>
+with the timid suggestion of: <br>
+    ‘cavity-searched.’ <br>
+
+In Group we all go around and share, <br>
+pollute the air with our private aches and<br>
+hope someone somehow will understand. <br>
+Nikita will sit a few chairs from me—<br>
+she’s a student from Penn. They put her in<br>
+because she overdosed on cough syrup,<br>
+and before that was drowning in depression.<br>
+An obsession with books has kept her thin. <br>
+On my right, Angie will smirk the smirk of<br>
+a Cynic in private pain, will refrain<br>
+from speech although after she will seek to<br>
+give me a formal education in<br>
+the art of men. She is glamorous, her<br>
+teeth a white, gap-toothed flash between her<br>
+blood-red lips. When she walks she swings her hips<br>
+and tells me how to kiss with your tongue.<br>
+I think of Angie of the Rolling Stones: <br>
+ *There ain’t a woman that comes close to you<br> 
+Come on Baby dry your eyes.*<br>
+And Angie says, “here’s how to make a man jump <br>
+your bones: I’ve been married five times. I’ll <br>
+tell you the secret, the way to charm a man <br>
+into your hand. End the conversation <br>
+first, and always walk away. Act bored. Men <br>
+only really want the things they can’t have.” <br>
+
+Me? You probably wondered how I got<br>
+in here, and how a crackpot speaks so clear, <br>
+instead of dribbling out nonsense rhymes. <br>
+And I could tell you stories about me,<br>
+palms full of pills, dreams full of window sills,<br>
+whittling down this body to reach ribs, <br>
+the sternum’s piano keys. That might even <br>
+please you, a confirmation my screws are<br>
+too loose to feel, that none of this is real. <br>
+(I was told this wasn’t the way to go<br>
+about it, that you’d have to make them laugh,<br>
+that no one wants a story to tear down<br>
+the walls of common sense.) So to protect<br>
+your conscience, let’s chalk it up to this: <br>
+Haldol-Seroquel-Thorazine daydreams<br>
+Zyprexa-Celexa-Trazadone lies.<br>
+Search my genome, say your ACG’s, wrench<br>
+loose some base pairs, uncross your T’s: behold<br>
+the mutations, gene abominations<br>
+that make this loony sing out hateful tunes— <br>
+“she’s only talkin’ crazy, her brain’s<br>
+    bipolar-hazy.” <br>
+
+And if, by chance, you still worry my rhymes <br>
+talk sense... “Well, Doc caught her before she  <br>
+went off the deep end, and that made all the <br>
+    difference.”  <br>
+
