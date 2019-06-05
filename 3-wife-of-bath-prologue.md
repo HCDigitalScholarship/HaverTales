@@ -51,3 +51,111 @@ Once I got rid of the fourth guy, I went back on Tinder and found Jenkin. We did
 *Allison, we’re their RAs, we’re supposed to be advising them to stay off tinder. Our freshmen don’t need to hear about your abusive relationship and your sexscapades.*
 
 Okay, okay, I will. I’ll tell you a story I heard – pretty awful – about a guy who catfished a freshman at Barnard.
+
+---
+
+## “Angie’s Tale” from *Tales from the Women’s Ward*
+
+by Aurora Lewis, Haverford ‘19
+
+“You want a man like that?” Angie means <br>
+that guy who modeled jeans to afford <br>
+Ciroc and Smirnoff, twenty-ninety<br>
+for Ten High. Can you blame the ladies?<br>
+Boy has gin-hollow cheeks, a Trent Reznor<br>
+stare, the same dark hair, the first muscled grin<br>
+they’ve seen in weeks. Laura wants to talk with<br>
+him. “I’ll walk right up and ask to see his<br>
+ass tattoo. You really think that rumour’s <br>
+true?” (Yet *I* keep thinking that yeah you’ve fucked<br>
+to “Closer,” but before Cash cashed in it<br>
+was NIN who warned how *I will make you hurt*.)  <br>
+And here’s Angie’s lead-in: “Reminds me of <br>
+my last husband, something around the eyes. <br>
+Did you know I was married five times? I’ll<br>
+tell you how to catch a real tomcat like<br>
+that: let him talk to you, but ignore him,<br>
+feign boredom. Leave well before him, and<br>
+when he asks, “baby, will I see you <br>
+again?” give him a shrug and a smile<br>
+    and a “maybe.” <br>
+
+She looks at me and says, “you’re young, you got<br>
+it easy honey. Me, my first fuck I <br>
+was jailbait and he was forty, owned a<br>
+Lexus and built half the town. Recently<br>
+divorced, with a daughter—could have been<br>
+my father, but he asked to drive me home,<br>
+to take me out for drinks—he’d pay. His<br>
+lips tasted of gin, of cigarettes and<br>
+marital regrets. He kept the condoms <br>
+and Klonopin in the nightstand drawer, <br>
+and after he screwed me sore he told me<br>
+“you should’ve fucked a man who loves you.”V
+I held him as he cried. <br>
+My first few husbands got old and died. They<br>
+were rich too, left me their money. But my<br>
+last hubbie, I married for love—he was <br>
+a law student, a real sweetie, until<br>
+he got drunk; then he’d yell and curse and start<br>
+to beat me. Sometimes I’d catch him watching<br>
+pornography, and then I’d scream myself<br>
+hoarse. Man had the gall to call *me*<br>
+abusive, and often said he wanted <br>
+    a divorce.” <br>
+Laura cuts in then, around a mouthful  <br>
+of chicken. We are sitting in the caf<br>
+with our dinosaur nuggets and fries. A <br>
+child’s diet, which suits us fine, but <br>
+break the coffee machine and you’ll cause a<br>
+riot. “Did he ever watch *me?* I was <br>
+thinner then, and my manager said I’d <br>
+be the next Sasha Grey. I was even <br>
+thinner than you,” (she is looking at me)<br>
+“but when they put me in, Doc hopped me on<br>
+Seroquel, and I ate and ate and gained<br>
+it all back.” <br>
+Angie shrugs and gets back on track, “I pranked<br>
+him once, after he beat me black and blue,<br>
+and nailed me too. I threatened to take him<br>
+to court, unless he could find the answer: <br>
+What is it all women want? I had the<br>
+man reading *Cosmo*, *Elle* and *Vanity <br>
+Fair*, and after a month he told *me* the <br>
+question wasn’t fair. And anyhow, why<br>
+should he put up with an old hag like me?—<br>
+(It’s true, you know, once you hit thirty, they<br>
+all start banging their secretary.) I<br>
+told him, it’s not wealth, or diamonds, or gold, <br>
+or a plane to the UK--though I’ve heard<br>
+Canterbury is a sight to see. All<br>
+women want only one thing: mastery<br>
+over their men, so the bastard won’t <br>
+ever cheat, or beat her, or give her <br>
+orders again.”<br>
+The nurses round us up, and we walk<br>
+in sock feet single-file back to the<br>
+unit. Then Angie and I help neaten<br>
+the supply closet (the nurses are using<br>
+us, but cooperate and they might not<br>
+keep you in so long. At least, I think so, <br>
+and here’s to hoping I avoid getting<br>
+302’d). Angie sneaks a razor <br>
+under her shirt with a wink, saying she’ll<br>
+shave today. “Don’t tell anyone or the<br>
+nurses will come and watch you like you’re <br>
+five. They do it to keep us alive, in<br>
+case we’re actively trying to off<br>
+ourselves. Blades are too small though, unless you<br>
+swallow them, and anyhow I’m not a<br>
+cutter.” I say nothing, and ask her then,<br>
+*How did the story you were telling end?*<br>
+Her smile is wry and raw and sad. She<br>
+says, “When I checked in here that was it.<br>
+Guess the man never gave a shit.” I catch<br>
+a fleeting glimpse, a flicker in her eye. <br>
+I turn to look, but it is gone, I can<br>
+not put my finger on it. And then she<br>
+laughs and the comfortable numbness is back. <br>
+“Guess I’ll have to marry again,” she says. <br>
+And we speak no more of it.<br>
