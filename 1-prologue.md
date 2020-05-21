@@ -846,6 +846,8 @@ So if ye haven sens then heed this tale,<br>
 Whan ye must chosen yer minors and maiors the same,<br>
 And blameth nat me if that ye chese amys.<br>
 
+---
+
 ## The Bi-Co Baby
 
 By Emily Darrow, Bryn Mawr ‘21
@@ -914,3 +916,48 @@ If you’re in need of a tutor today <br>
 Then bring this pre-med with you on the way. <br>
 His speech it is always clear, and it’s straight. <br>
 Surely his story will be worth the wait! <br>
+
+---
+
+## The Campus Safety Lad 
+By Emily Darrow, Bryn Mawr ‘21
+
+There was a protector with a car <br>
+That served on the campus of Bryn Mawr <br>
+He was on call day and night <br>
+For whenever a student had a fright <br>
+Sometimes it was as simple as a locked door <br> 
+But other times his job was something more. <br> 
+
+Upon a dreary day in March <br> 
+He saw a terrifying email while under the arch <br>
+All of a sudden the campus must close <br>
+For a serious virus was about to impose <br>
+No longer could a person stay in their rooms <br>  
+And no regular classes would resume. <br> 
+
+This lad’s job was no longer the answer to calls <br>  
+But instead to keep away community members until fall <br>
+While some may wander six feet apart with pets <br> 
+Others have plans to gain access to their assets. <br> 
+While this officer idles in the emptiness <br>  
+Another is plotting a return to campus. <br>
+
+For Sharon has booked a ticket for a train <br>
+To gather the belongings that remain. <br>
+She does not know the obstacles ahead <br>
+But knows she left something important on her bed. <br>
+
+As she arrives to campus with her dad <br>  
+She is halted by the before mentioned lad. <br> 
+For he tells her “this campus is closed” <br>
+These are rules that the governor has imposed. <br> 
+Sharon’s father tries to reason with the lad <br> 
+But the lad is now becoming mad. <br> 
+
+He sends them on their merry way <br> 
+And prepares for more students to come another day. <br> 
+For he knows that Sharon will not be the last <br>
+So this safety lad must think fast. <br> 
+No one knows of the great battle ahead <br>
+That comes when students want clothes and bedspread. <br> 
