@@ -933,14 +933,14 @@ Upon a dreary day in March <br>
 He saw a terrifying email while under the arch <br>
 All of a sudden the campus must close <br>
 For a serious virus was about to impose <br>
-No longer could a person stay in their rooms <br>  
+No longer could a person stay in their rooms <br>
 And no regular classes would resume. <br> 
 
-This lad’s job was no longer the answer to calls <br>  
+This lad’s job was no longer the answer to calls <br>
 But instead to keep away community members until fall <br>
 While some may wander six feet apart with pets <br> 
 Others have plans to gain access to their assets. <br> 
-While this officer idles in the emptiness <br>  
+While this officer idles in the emptiness <br>
 Another is plotting a return to campus. <br>
 
 For Sharon has booked a ticket for a train <br>
@@ -948,7 +948,7 @@ To gather the belongings that remain. <br>
 She does not know the obstacles ahead <br>
 But knows she left something important on her bed. <br>
 
-As she arrives to campus with her dad <br>  
+As she arrives to campus with her dad <br>
 She is halted by the before mentioned lad. <br> 
 For he tells her “this campus is closed” <br>
 These are rules that the governor has imposed. <br> 
@@ -961,3 +961,59 @@ For he knows that Sharon will not be the last <br>
 So this safety lad must think fast. <br> 
 No one knows of the great battle ahead <br>
 That comes when students want clothes and bedspread. <br> 
+
+---
+
+## The Haverbro
+By Nick Lasinsky, Haverford ‘23
+
+Tap tap tap - bip, bop, bounce <br> 
+A ping pong floating <br>
+Chant, rant, flounce <br>
+In a cup colored red with froth gurgling slow <br> 
+These are telltale signs my friend, you should know <br>
+For if you ever are beckoned by their cheery smile’s glow <br>
+Understand what you’re getting into with the ​HAVERBRO <br>
+ 
+The Bro is a species unique to Haverford <br>
+Their demeanor is tall, quick with strong word <br>
+They oft travel in packs, in DC cohorts <br> 
+Swarming corner in winter, still wearing shorts <br>
+They lumber with facial hair which is perhaps ill advised <br>
+But let’s face it; this demographic is not known for being wise <br>
+Though, when sober, for the most part <br> 
+They bring flutter to many a young female heart <br>
+With rugged thick brows, shirt stretched too tight <br>
+Confident banter, flirtatious and light <br> 
+And indeed The Bro is neither evil nor good <br> 
+Like all of us, they need just to be understood <br>
+So don’t be mistaken, no Bro is stupid <br>
+It’s more like their noggin can’t quite get out from its lid; <br>
+It is difficult to discuss, to study and see <br> 
+When each weekend and Wednesday is stuffed with party <br> 
+ 
+Their habitats are many, but I’ll go out on a limb: <br> 
+You’re chanced to find them “gittin totally swol” at the gym <br>
+Lifting and pumping iron around <br> 
+Till their arms are so puffed up they can’t put them back down <br>
+Or perhaps you’ll find them creating a thrum <br> 
+On midweek nights, level first/first of Gum <br>
+And you can be sure if you open any stairwell for a breeze <br>
+You’ll be greeted with an odor like beer married rotted cheese <br>
+And of course the nexus, where once sober faces get pinker <br>
+Is that dear old orange palace to the Bro: Drinker <br>
+Beware of entering, for if you fall into the rush <br>
+You may just wake up, naked in a rosebush <br> 
+As The Bro has a way of getting your guard down <br>
+With their impressive bravado, hedonism to astound. <br>
+ 
+But they are an addition most essential to our community <br>
+For though caution is needed, do tread lightly, <br>
+Each Bro is important, in their own way <br>
+Sometimes good hearted, loyal each day <br>
+And though their skulls may be a few centimeters more thick <br> 
+They’re worth your respect, even if they aren’t first pick <br>
+So the next time you hear something vaguely loud or rude <br>
+Or the panicked phrase “Yo I can’t get my arms down dude” <br>
+You can smile in recognition, and be certain you know <br>
+The signs subtle and glaring of the ​HAVERBRO​. <br>
