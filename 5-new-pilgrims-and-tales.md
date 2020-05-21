@@ -420,4 +420,96 @@ While Rosalind Franklin, the world failed. <br>
 For in 1958, Rosalind Franklin dies <br>
 It took until 1962 for Watson, Crick, and Wilkins to win the Nobel Prize. <br>
 
+---
+
+## The Lass’s Prologue
+
+“Miss Lass of Haverford,” the host declared, <br>
+“Why don’t you go next, you haven’t shared. <br>
+You travel alone, riding pensively,  <br>
+Yet when the farce hits, you wince so subtly. <br>
+Surely, you’re learned - exposed to these classics, <br>
+Myths, and japes. Yet offended by the antics; <br>
+Do the romances not start your heart ticks? <br>
+Hard to please. Still bruised are your ethics. <br>
+Won’t you place a tame tale upon the backs <br>
+Of these raucous men, one found in the stacks?” <br>
+This educated lass kindly answered: <br>
+“A tale I’ll tell, one which fits in your genre. <br>
+One bold, romantic, heartwarming saga.  <br>
+But before I delve in, I must address <br>
+Your sharp comments on my independence. <br>
+
+If you must, it weren’t meant to be so, <br>
+I had. Have? A boyfriend, a handsome beau. <br>
+Romantic, charming, grand gestures abound. <br>
+He sure knew, knows? How to maken me flound. <br> 
+
+I’ll tell you of our initial pairing,  <br>
+Since you’re intrigued, I won’t be sparing. <br>
+
+In poli sci, him I wanted to shiv; <br>
+“Socially liberal, fiscally conservative.” <br>
+God what an ass, yet his face was pure class.  <br>
+Every day a debate, rebuttals and sass. <br>
+
+But one ‘noon he takes my hand,  <br>
+Leads me under a tree to stand. <br>
+Commands, “Kiss me.” I scoff, perplexed. “Well alright.” <br>
+He spins me in, holds tight, lands one… not light. <br>
+
+Thus started our romance, days of dance; <br>
+With notes, sweetness , he put me in a trance. <br>
+And when our playful banter turned to tiffs <br>
+He knew how to make me his.  <br>
+Draw me in, kiss me tight. <br>
+Thus would end our little fight. <br>
+
+Then one day, three months in, he got me riled. <br>
+Made some joke ‘bout my anger for pedofiles. <br>
+Well that made me mad. Absolutely beguiled.  <br>
+“Don’t you understand?” I yelled. “There’s rapists <br>
+In all the highest offices. <br>
+They’re everywhere,  <br>
+and people don’t care! <br>
+How can we go on with life, knowing all this, <br>
+Not fighting, striking, screaming.” <br>
+
+His laugh interrupts my chatter. <br>
+“You’re so cute when you’re angry… <br>
+Come here…” Then pulls me in <br>
+Knowing I’ll submit, lay off, back down <br>
+
+But not this time I’m too inflamed <br>
+“No!  <br>
+Don’t you understand? <br>
+This isn’t cute, this is real. Where is your humanity? <br>
+ “Some things take time,” he says, <br>
+“That too shall pass, then you’ll have some coot like <br>
+Warren in that White House.”	 <br>
+
+That’s my final straw, I turn away. <br>
+But he pulls me in, like he always does. <br>
+Kisses me so tight my lips  <br>
+Go numb. <br>
+I give in to feel the blood. <br>
+
+Then he lead me to his room, <br>
+Told me he loved me. <br>
+I gave him a blowjob  <br>
+
+And left the next morning. <br>
+
+So here we are, I travel all alone. <br>
+You say it’s time to tell a tale, I’ll go on. <br>
+Something romantic, mystical, luring. <br>
+Have you heard of the Roman de la Rose? <br>
+Guillome’s start was superb, Jean’s part just groans. <br>
+How did the flower care to be plucked?  <br>
+From her point of view I will reconstruct. <br>
+A proper romance, one to fit the flirt. <br>
+If you’ll listen to me more, more I’ll tell. <br>
+For such love is quite a powerful spell.  <br>
+
+
 
