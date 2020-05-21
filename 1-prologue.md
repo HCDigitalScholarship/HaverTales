@@ -846,3 +846,32 @@ So if ye haven sens then heed this tale,<br>
 Whan ye must chosen yer minors and maiors the same,<br>
 And blameth nat me if that ye chese amys.<br>
 
+## The Bi-Co Baby
+
+By Emily Darrow, Bryn Mawr ‘21
+
+Sweet Mary was born with a predetermined destiny <br>
+Her beginnings were humble as her parents met in Gummerie <br>
+This girl is a rare but well-known type in the neighborhoods, <br>
+Of the close-knit Bryn Mawr and Haverford. <br>
+Her father could make the trek to see her mother without a fuss <br>
+As he just had to utilize the frequent blue bus. <br>
+Her parents were meant to be married in a month like march <br>
+For they had already kissed under rock arch <br>
+Mary had spent most of time <br>
+Growing up on the mainline <br>
+From Hegal to DesCartes <br>
+Mary knew all her liberal arts by heart. <br>
+
+She learned to flee the geese without fail, <br>
+Especially during her walks on the nature trail. <br> 
+She knows one day she will travel the world <br>
+ But first she will come to embody an owl or a squirrel <br>
+She dresses in sweaters almost every day <br>
+And is probably going to be “gay by May” <br>
+Her religion is not one with missions <br>
+Instead she is most dedicated to Bryn Mawr traditions <br>
+Her destiny was fulfilled <br>
+The day she took her first class in Hilles <br>
+You might have crossed paths with her just maybe <br>
+As she is a treasured bico baby. <br>
