@@ -19,7 +19,7 @@ Station Officer: Sergeant Jeff C. Hauser
 Case File Manager: Corporal Harold Bailey 
 Junior Cadet: Officer Nicholas Lasinsky  
 
-Canterbury, Kent, United Kingdom. Police Barrack Files. To be viewed by officers only. ​ ​
+Canterbury, Kent, United Kingdom. Police Barrack Files. To be viewed by officers only.  
 Filed 4/1/2020.  
 
 Document #1: Interview with Mr. Johnathan Carpentier 
@@ -50,7 +50,7 @@ John Carpentier (JC): Well I’d be blasted glad to know how long I gotta wait i
  
 (JC): And when the flood comes and you squat at your prissy desk and see just how useless two arms are against Nowell’s mighty waters, you can hear me cackling by in my washbin right here, broken arms and all, on my road to salvation.  
  
-*long pause* 
+`*long pause*` 
  
 (OL): Mr. Carpentier are you aware that your wife has filed allegations of sexual assault against your boarder? 
  
@@ -62,7 +62,7 @@ John Carpentier (JC): Well I’d be blasted glad to know how long I gotta wait i
  
 (OL): Sir, this is a command, not a request. Sir, please exit. Sir! SIR! 
  
-*Subject subdued and tasered repeatedly in the process of an assault on the serving officer. Proceedings terminated until further notice.* 
+`*Subject subdued and tasered repeatedly in the process of an assault on the serving officer. Proceedings terminated until further notice.*`
 
 
 Document #2: General Description of Crime Scene and Eyewitness Statements 
@@ -70,7 +70,7 @@ Document #2: General Description of Crime Scene and Eyewitness Statements
 Location: Residence of John and Alison Carpentier, as well as Nicholas Hende (boarder) 
 Officer Summary: Scene showed general debris strewn about Carpentier barn, including fragments of multiple washtubs, axes, provisions for many days, and slashed ropes. Small traces of blood found on barn floor, likely belonging to Mr. Carpentier as a result of his injuries (DNA results incoming). Inside of carpentier house largely untouched but signs of a struggle present in bed sheets (severely ruffled) as well as water spilled on carpet (likely as a result of Mr. Hende’s injury). Window in bedroom left open. Flecks of fresh ash identified on windowsill, forensics in progress.  
 Statement of Mrs. Missy Eglantine: “Well, I was simply minding my business saying my nightly prayers when I heard the loudest scream for ‘water’ that I dare say my ears have ever witnessed, immediately followed by a monumental crash! I rushed to my window to get a better look, but all I saw was John’s wife running down the street away from her home. As for John himself, when I went to investigate, the poor man was unconscious, mumbling something about a flood...that was when I decided to alert the authorities.” 
-Statement of Mr. Robyn Miller: “I tell ya I sorely regret I missed the grand finale of that night, but sure, if you wanna know what I saw as I walked by, it’s as plain as can be. I’m minding my own business, thinking of all the work I’ve gotta grind through, when I just happen to look up at John’s place and spot his pretty little pie of a wife leaning out the window - well I tell you that sight’s always worth a look. So I stop and sure enough there’s that student Nicholas Hende climbing up the balcony - but then I realized it wasn’t Hende at all! Instead it’s that queer Absolom and he’s climbing straight up, lips puckered, but then Alice, see, she turns right around and gives him a straight up faceful of hairy wet ass right into his open​	 mouth [redacted] fit to keep him flossing for months!”​	 
+Statement of Mr. Robyn Miller: “I tell ya I sorely regret I missed the grand finale of that night, but sure, if you wanna know what I saw as I walked by, it’s as plain as can be. I’m minding my own business, thinking of all the work I’ve gotta grind through, when I just happen to look up at John’s place and spot his pretty little pie of a wife leaning out the window - well I tell you that sight’s always worth a look. So I stop and sure enough there’s that student Nicholas Hende climbing up the balcony - but then I realized it wasn’t Hende at all! Instead it’s that queer Absolom and he’s climbing straight up, lips puckered, but then Alice, see, she turns right around and gives him a straight up <span style="background-color:#000000; color:#000000;">faceful of hairy wet ass</span> right into his open​	 mouth [redacted] fit to keep him flossing for months!”​	 
  
 *Interview terminated. Witness, clearly intoxicated, warned to return home.* 
  
