@@ -81,11 +81,11 @@ Document #3: Interview with Mr. Nicholas Hende
 
 Officer Lasinsky (OL): Mr. Hende, we’d like to get directly to the facts tonight - how long have you been involved in an affair with Mrs. Alice Carpentier? 
 
-Nicholas Hende (NH): Well officer I first…*suspects eyes appear to glaze over and a grimace appears on suspect’s face* Ah ​shit my ​fucking​ ​ass​ feels like the devil ​decided to shove his burning hot dick right inside it​.  
+Nicholas Hende (NH): Well officer I first…*suspects eyes appear to glaze over and a grimace appears on suspect’s face* Ah <span style="background-color:#000000; color:#000000;">shit</span> my <span style="background-color:#000000; color:#000000;">fucking</span> <span style="background-color:#000000; color:#000000;">ass</span> feels like the devil <span style="background-color:#000000; color:#000000;">decided to shove his burning hot dick right inside it</span>.  
  
 (OL): Mr. Hende please stick to the questions you are being asked.  
  
-(NH): Alice and I have been going at it under that old man’s nose for weeks. That ​pisspot​ John’s so deluded you could tell him his mother was a unicorn and if you give him enough convincing he’ll start rubbing his forehead and ask you why he didn’t get a horn.  
+(NH): Alice and I have been going at it under that old man’s nose for weeks. That <span style="background-color:#000000; color:#000000;">pisspot</span> John’s so deluded you could tell him his mother was a unicorn and if you give him enough convincing he’ll start rubbing his forehead and ask you why he didn’t get a horn.  
  
 (OL): And how did your relationship with Mrs. Carpentier begin? 
 Jesus there’s a lot of wires hooked up to you.  
@@ -98,7 +98,7 @@ Jesus there’s a lot of wires hooked up to you.
  
 (OL): Mr. Hende, was that a threat? I hope that you do understand that once you’re released from this facility you’ll be detained in the local barracks. 
  
-(NH): Oh, ​         fuck          ​ you Lasinsky and all your fuzz friends. 
+(NH): Oh,  <span style="background-color:#000000; color:#000000;">        fuck          </span> you Lasinsky and all your fuzz friends. 
  
 (OL): Alright then, well Mr. Hende, I think it’s time to call it a night. I’ll be following up with your investigation tomorrow.  
  
