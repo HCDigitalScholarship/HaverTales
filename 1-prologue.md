@@ -875,3 +875,42 @@ Her destiny was fulfilled <br>
 The day she took her first class in Hilles <br>
 You might have crossed paths with her just maybe <br>
 As she is a treasured bico baby. <br>
+
+---
+## The Chemistrye Meior
+
+By Leo Gadicke, Haverford 21’
+
+The CHEMISTRYE MEIOR, he was right tall.<br>
+His scraggly berd was noote sheved at alle.<br>
+He scarcely ever got a wynk of sleep—<br>
+
+His brain was in the molecules too deep.<br>
+I often looked at him and felt soo sede<br>
+The rings under his eyeballs are soo bede.<br>
+For until he’s completed his degree,<br>
+His butt will never leave the labrat’ry.<br>
+He wishes he could get to home and rest<br>
+But thet would put his grades at second best.<br>
+So, at two, at three, at four, at five at six,<br>
+He stead’ly stays there mixing that with this.<br>
+Despite all his trials he sticks to good:<br>
+He never cheats but helps his peeren too.<br>
+Yet against him I will point out this one fact <br>
+(For you know by Plato we must not redact): <br>
+His lab coat was his only attire. <br>
+I think beneath it he was just right bere. <br>
+Furthermore, this coat was stained with a blue, <br>
+Not ink but substance science made anew. <br>
+His project was the new invention of: <br>
+Pentacyclo[4.4.0.0 <sup>2,5</sup> .0 <sup> 3,8 </sup> .0 <sup> 4,7 </sup>]decane… <br>
+I don’t know this novel liquid’s for. <br>
+But with it he will surely get a 4.0. <br>
+Now these li’l quips should never cause offense. <br>
+But for these grades, pre-meds are quite tense. <br>
+And you know his hard work gives him good position <br>
+O’er at the office of Penn U.’s admissions. <br>
+If you’re in need of a tutor today <br>
+Then bring this pre-med with you on the way. <br>
+His speech it is always clear, and it’s straight. <br>
+Surely his story will be worth the wait! <br>
