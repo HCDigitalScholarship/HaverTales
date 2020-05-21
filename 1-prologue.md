@@ -809,3 +809,39 @@ talk sense... “Well, Doc caught her before she  <br>
 went off the deep end, and that made all the <br>
     difference.”  <br>
 
+---
+
+**The Classics Maior**
+By Nadia Balzani Zamir, Bryn Mawr ‘23
+
+Entendeth to that figure and bitime aspieth,<br>
+The britel CLASSICS MAIOR her come,<br>
+So slight sche seme a frel wari-angel,<br>
+On a campus bigon by many a ferly corbel.<br>
+Haves pacience my frends for houres of the day<br>
+Mahte it take for hir hed reysen up to a sonne’s ray,<br>
+Above the tour of boks lade loft in hir arms<br>
+Of Sophocles, Homer, Cicero and Caesar.<br>
+If ere ye aprochest this feble traveler,<br>
+(More impassioned for the arts than manye a lovere)<br>
+Who make longe pilgrimage eche dayes <br>
+To the halwed halles of libraries,<br>
+Then ye moot hear the swete melodye<br>
+That sche can be found singe on alle journeys.<br>
+The loft-song of Achilles singe etern,<br>
+Times oft it seems siche skyl as speken terme,<br>
+But sche has naht time for the nones of terme,<br>
+For grammar and vocab moot sche lerne.<br>
+So moot I gon the yonge therne loke,<br>
+As if by the arwe of Cupid sche’d been ybiten!<br>
+For Greek tragedye has hente hir by the herte,<br>
+This cruel cardinacle does torment and hurte,<br>
+I biknowen naht how sche live like this, don thee?<br>
+In deed at times sche is sorweful on to see, <br>
+Hir prisoun are the temes sche yrede <br>
+That maken hir blentye (from the strength of love),<br>
+By far the mast pale face in the college sale,<br>
+So if ye haven sens then heed this tale,<br>
+Whan ye must chosen yer minors and maiors the same,<br>
+And blameth nat me if that ye chese amys.<br>
+
