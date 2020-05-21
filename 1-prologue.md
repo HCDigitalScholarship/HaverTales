@@ -811,7 +811,8 @@ went off the deep end, and that made all the <br>
 
 ---
 
-**The Classics Maior**
+## The Classics Maior  
+
 By Nadia Balzani Zamir, Bryn Mawr ‘23
 
 Entendeth to that figure and bitime aspieth,<br>
