@@ -422,6 +422,41 @@ It took until 1962 for Watson, Crick, and Wilkins to win the Nobel Prize. <br>
 
 ---
 
+## The Lass’s Portrait &amp; Prologue
+By Anonymous 
+A LASS there was, of university. <br>
+A semester she took off, searching identity.<br>
+Nature, she thought, might hold her true self <br>
+But this spring, it would not be on a shelf.<br>
+So pilgrimage she took, to learn her core.<br>
+To find herself, the world she must explore.<br>
+Her hair was short, with bangs upon her fore. <br>
+Chunky sweaters and rolled jeans oft she wore. <br>
+Spectacles horned, a bandana tied just so, <br>
+Scrunchies on her wrist, turtlenecks below. <br>
+Her nose was pierced; through her septum, a ring. <br>
+Though she never were for a gaudy thing. <br>
+Were it Birks or Blundstones upon her feet? <br>
+My memory evades so I’ll retreat <br>
+To relate you all of her major woe <br>
+T’will it be english, histry, or anthro? <br>
+Of all she liked and discussed dearly. <br>
+And professors wise, in departments three. <br>
+Yet none could she pick, nor find true calling. <br>
+But she did love yoga and doodles scrawling. <br>
+Fridays she danced and Sundays she brunched. <br>
+Avo’s and granola she loved to munch. <br>
+As for politics, it’s Marx she’s behind <br>
+If one came against, she’d sure respond in kind: <br>
+Warren in ‘20 for “Future is female.” <br>
+“Free the nips,” “Save the Bees,” and “Eat More Kale.”<br>
+She balked with purpose yet discussed unsure,<br>
+Er, I dunno. New ideas she need procure.<br>
+So off she went, herself for the finding.<br>
+I do hope she does some good deciding.<br>
+ 
+---
+
 ## The Lass’s Prologue
 
 “Miss Lass of Haverford,” the host declared, <br>
