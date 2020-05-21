@@ -302,3 +302,122 @@ just taking this a little too seriously.<br>
 I don’t know what to tell you because you probably wouldn’t listen, <br>
 and you’re clearly not susceptible to logic or reason.” <br>
 
+---
+
+## Rosalind Franklin’s Tale OR Swyved Like the Turn of a Helix
+By Sophie Gibson, Bryn Mawr ‘20
+
+At King’s College London, a bit far from Cambridge <br>
+In Waterloo, just off its namesake’s bridge <br>
+There resides a chemistry lab <br>
+A place where the brightest people take a stab <br>
+At life’s most pressing problems <br>
+In hopes to be the first to solve them. <br>
+Performing experiments and tests <br>
+Titrations, extractions, filtrations, and the rest. <br>
+This lab was run by a man named John Randall <br>
+His lab was the center of a scandal. <br>
+In the mid-20th century, there was a race to see <br>
+Who could solve a chemical structure of much complexity. <br>
+There is a molecule essential to life <br>
+Called deoxyribonucleic acid, which caused a lot of strife. <br>
+Dubbed “DNA” for short, it is the genetic material <br>
+Passed down for all functions most critical. <br>
+They knew this much, but not its appearance <br>
+Which needed to be solved in order for clearance <br>
+To move on to discover a bigger reaction; <br>
+Like DNA replication, transcription, and translation. <br>
+Randall’s lab employed technique most key <br>
+Known as x-ray crystallography <br>
+Essentially, one could take a picture <br>
+Of a molecule and decipher its structure. <br>
+It was not simple to get DNA to crystalize <br>
+Which lead Randall to realize <br>
+He needed someone else on his team <br>
+Someone other than Maurice Wilkins it would seem. <br>
+Wilkins, an x-ray crystallographer <br>
+Was trying to solve the DNA structure. <br>
+He expected to be the sole scientist <br>
+Working on the DNA twist. <br>
+Cursed with poor timing, he went on vacation <br>
+Just as Randall interviewed someone for a new station. <br>
+
+In 1951, Randall hired a talented woman <br>
+Who was called Rosalind Franklin. <br>
+As a young girl, she developed an ambition <br>
+To become a scientist, which became her mission <br>
+Her mother and grandmother endorsed her <br>
+And at Cambridge took her love of science further. <br>
+She finished with a PhD in Chemistry <br>
+Then she went to a Paris University <br>
+Where she studied protein structure <br>
+And became a skilled x-ray crystallographer. <br>
+She was driven, strong-minded and determined <br>
+But she was continued to be undermined <br>
+For she was in the unfortunate position <br>
+Of being an independent woman in a male-driven institution.  <br>
+When she arrived at King’s, she was under the impression <br>
+That she was the only person solving the DNA question. <br>
+This was the beginning of the rift. <br>
+That set Franklin and Wilkins adrift. <br>
+Randall failed to alert the pair <br>
+That they should bond and they should share. <br>
+This is the custom in scientific discovery <br>
+Including unraveling the DNA mystery <br>
+Wilkins came back to find a new face, <br>
+And did not bother welcoming her to the place. <br>
+He was cold to Franklin and was not hesitant <br>
+In treating her as an assistant. <br>
+In return, Franklin grew to act the same <br>
+Never would their relationship be tame. <br>
+She carried on with her crystal imaging <br>
+By this point, the race was in full swing. <br>
+There were two young scholars <br>
+Bored of studying proteins at all hours. <br>
+In November of 1951 <br>
+The one named James Watson <br>
+Attended a talk given by Franklin <br>
+And became inspired to join in. <br>
+He had befriended Wilkins earlier <br>
+Who did not speak kindly of her. <br>
+An unpopular opinion had quickly formed <br>
+By the time he had come aboard. <br>
+He knew he needed to be quick <br>
+And teamed up with the young Francis Crick <br>
+The two worked in Cambridge’s Cavendish lab <br>
+Building models, taking a stab. <br>
+Rosalind and her pupil John Gosling lead the race <br>
+Unknown to her, Wilkins was keeping pace <br>
+For he in secret copied her workbook <br>
+Including a key photo her student took. <br>
+The details to the structure and more  <br>
+Unbeknownst to Franklin, in Wilkin’s drawer. <br>
+
+All would change one fateful day <br>
+When Watson spent some time away. <br>
+In January 1953, he made a visit to London <br>
+To see what his friend was working on. <br>
+It was there that without her permission <br>
+Wilkins unveiled the stolen, private work to Watson. <br>
+Including the infamous Photo 51 <br>
+A piece to the puzzle Watson now won. <br>
+He was blown away the shape at the center, an “X” <br>
+Realizing DNA forms a double helix. <br>
+Twisting like a screw or in this case, knives <br>
+To describe how Rosalind Franklin is swyved. <br>
+Watson rushes back to Crick <br>
+They solve the model, it’s all too quick. <br>
+By April 1953, it was done. <br>
+They publish first in Nature. It’s over, they won. <br>
+At the end there’s a small gesture,  <br>
+“We have also been stimulated by a knowledge of the general nature <br>
+of the unpublished experimental results and ideas of Dr. M. H. F. Wilkins, Dr. R. E. Franklin  <br>
+and their co-workers at King’s College, London.” <br>
+Wilkins and Franklin published as well <br>
+They were leaders as a new era began to swell. <br>
+But Watson and Crick above all were hailed <br>
+While Rosalind Franklin, the world failed. <br>
+For in 1958, Rosalind Franklin dies <br>
+It took until 1962 for Watson, Crick, and Wilkins to win the Nobel Prize. <br>
+
+
