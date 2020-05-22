@@ -302,249 +302,43 @@ just taking this a little too seriously.<br>
 I don’t know what to tell you because you probably wouldn’t listen, <br>
 and you’re clearly not susceptible to logic or reason.” <br>
 
----
 
-## Rosalind Franklin’s Tale OR Swyved Like the Turn of a Helix
-By Sophie Gibson, Bryn Mawr ‘20
+**The Lass’s Portrait & Prologue** <br>
+By Anonymous <br>
 
-At King’s College London, a bit far from Cambridge <br>
-In Waterloo, just off its namesake’s bridge <br>
-There resides a chemistry lab <br>
-A place where the brightest people take a stab <br>
-At life’s most pressing problems <br>
-In hopes to be the first to solve them. <br>
-Performing experiments and tests <br>
-Titrations, extractions, filtrations, and the rest. <br>
-This lab was run by a man named John Randall <br>
-His lab was the center of a scandal. <br>
-In the mid-20th century, there was a race to see <br>
-Who could solve a chemical structure of much complexity. <br>
-There is a molecule essential to life <br>
-Called deoxyribonucleic acid, which caused a lot of strife. <br>
-Dubbed “DNA” for short, it is the genetic material <br>
-Passed down for all functions most critical. <br>
-They knew this much, but not its appearance <br>
-Which needed to be solved in order for clearance <br>
-To move on to discover a bigger reaction; <br>
-Like DNA replication, transcription, and translation. <br>
-Randall’s lab employed technique most key <br>
-Known as x-ray crystallography <br>
-Essentially, one could take a picture <br>
-Of a molecule and decipher its structure. <br>
-It was not simple to get DNA to crystalize <br>
-Which lead Randall to realize <br>
-He needed someone else on his team <br>
-Someone other than Maurice Wilkins it would seem. <br>
-Wilkins, an x-ray crystallographer <br>
-Was trying to solve the DNA structure. <br>
-He expected to be the sole scientist <br>
-Working on the DNA twist. <br>
-Cursed with poor timing, he went on vacation <br>
-Just as Randall interviewed someone for a new station. <br>
-
-In 1951, Randall hired a talented woman <br>
-Who was called Rosalind Franklin. <br>
-As a young girl, she developed an ambition <br>
-To become a scientist, which became her mission <br>
-Her mother and grandmother endorsed her <br>
-And at Cambridge took her love of science further. <br>
-She finished with a PhD in Chemistry <br>
-Then she went to a Paris University <br>
-Where she studied protein structure <br>
-And became a skilled x-ray crystallographer. <br>
-She was driven, strong-minded and determined <br>
-But she was continued to be undermined <br>
-For she was in the unfortunate position <br>
-Of being an independent woman in a male-driven institution.  <br>
-When she arrived at King’s, she was under the impression <br>
-That she was the only person solving the DNA question. <br>
-This was the beginning of the rift. <br>
-That set Franklin and Wilkins adrift. <br>
-Randall failed to alert the pair <br>
-That they should bond and they should share. <br>
-This is the custom in scientific discovery <br>
-Including unraveling the DNA mystery <br>
-Wilkins came back to find a new face, <br>
-And did not bother welcoming her to the place. <br>
-He was cold to Franklin and was not hesitant <br>
-In treating her as an assistant. <br>
-In return, Franklin grew to act the same <br>
-Never would their relationship be tame. <br>
-She carried on with her crystal imaging <br>
-By this point, the race was in full swing. <br>
-There were two young scholars <br>
-Bored of studying proteins at all hours. <br>
-In November of 1951 <br>
-The one named James Watson <br>
-Attended a talk given by Franklin <br>
-And became inspired to join in. <br>
-He had befriended Wilkins earlier <br>
-Who did not speak kindly of her. <br>
-An unpopular opinion had quickly formed <br>
-By the time he had come aboard. <br>
-He knew he needed to be quick <br>
-And teamed up with the young Francis Crick <br>
-The two worked in Cambridge’s Cavendish lab <br>
-Building models, taking a stab. <br>
-Rosalind and her pupil John Gosling lead the race <br>
-Unknown to her, Wilkins was keeping pace <br>
-For he in secret copied her workbook <br>
-Including a key photo her student took. <br>
-The details to the structure and more  <br>
-Unbeknownst to Franklin, in Wilkin’s drawer. <br>
-
-All would change one fateful day <br>
-When Watson spent some time away. <br>
-In January 1953, he made a visit to London <br>
-To see what his friend was working on. <br>
-It was there that without her permission <br>
-Wilkins unveiled the stolen, private work to Watson. <br>
-Including the infamous Photo 51 <br>
-A piece to the puzzle Watson now won. <br>
-He was blown away the shape at the center, an “X” <br>
-Realizing DNA forms a double helix. <br>
-Twisting like a screw or in this case, knives <br>
-To describe how Rosalind Franklin is swyved. <br>
-Watson rushes back to Crick <br>
-They solve the model, it’s all too quick. <br>
-By April 1953, it was done. <br>
-They publish first in Nature. It’s over, they won. <br>
-At the end there’s a small gesture,  <br>
-“We have also been stimulated by a knowledge of the general nature <br>
-of the unpublished experimental results and ideas of Dr. M. H. F. Wilkins, Dr. R. E. Franklin  <br>
-and their co-workers at King’s College, London.” <br>
-Wilkins and Franklin published as well <br>
-They were leaders as a new era began to swell. <br>
-But Watson and Crick above all were hailed <br>
-While Rosalind Franklin, the world failed. <br>
-For in 1958, Rosalind Franklin dies <br>
-It took until 1962 for Watson, Crick, and Wilkins to win the Nobel Prize. <br>
-
----
-
-## The Lass’s Portrait &amp; Prologue
-By Anonymous 
-A LASS there was, of university. <br>
+A LASS there was, of university.<br>
 A semester she took off, searching identity.<br>
-Nature, she thought, might hold her true self <br>
+Nature, she thought, might hold her true self<br>
 But this spring, it would not be on a shelf.<br>
-So pilgrimage she took, to learn her core.<br>
+So pilgrimage she took, to learn her core. <br>
 To find herself, the world she must explore.<br>
+
 Her hair was short, with bangs upon her fore. <br>
 Chunky sweaters and rolled jeans oft she wore. <br>
-Spectacles horned, a bandana tied just so, <br>
-Scrunchies on her wrist, turtlenecks below. <br>
-Her nose was pierced; through her septum, a ring. <br>
-Though she never were for a gaudy thing. <br>
+Spectacles horned, a bandana tied just so,<br>
+Scrunchies on her wrist, turtlenecks below.<br>
+Her nose was pierced; through her septum, a ring.<br>
+Though she never were for a gaudy thing.<br>
+
 Were it Birks or Blundstones upon her feet? <br>
 My memory evades so I’ll retreat <br>
-To relate you all of her major woe <br>
+To relate you all of her major woe<br>
 T’will it be english, histry, or anthro? <br>
 Of all she liked and discussed dearly. <br>
 And professors wise, in departments three. <br>
+
 Yet none could she pick, nor find true calling. <br>
 But she did love yoga and doodles scrawling. <br>
 Fridays she danced and Sundays she brunched. <br>
 Avo’s and granola she loved to munch. <br>
+
 As for politics, it’s Marx she’s behind <br>
 If one came against, she’d sure respond in kind: <br>
 Warren in ‘20 for “Future is female.” <br>
-“Free the nips,” “Save the Bees,” and “Eat More Kale.”<br>
-She balked with purpose yet discussed unsure,<br>
-Er, I dunno. New ideas she need procure.<br>
-So off she went, herself for the finding.<br>
-I do hope she does some good deciding.<br>
- 
----
+“Free the nips,” “Save the Bees,” and “Eat More Kale.” <br>
 
-## The Lass’s Prologue
-
-“Miss Lass of Haverford,” the host declared, <br>
-“Why don’t you go next, you haven’t shared. <br>
-You travel alone, riding pensively,  <br>
-Yet when the farce hits, you wince so subtly. <br>
-Surely, you’re learned - exposed to these classics, <br>
-Myths, and japes. Yet offended by the antics; <br>
-Do the romances not start your heart ticks? <br>
-Hard to please. Still bruised are your ethics. <br>
-Won’t you place a tame tale upon the backs <br>
-Of these raucous men, one found in the stacks?” <br>
-This educated lass kindly answered: <br>
-“A tale I’ll tell, one which fits in your genre. <br>
-One bold, romantic, heartwarming saga.  <br>
-But before I delve in, I must address <br>
-Your sharp comments on my independence. <br>
-
-If you must, it weren’t meant to be so, <br>
-I had. Have? A boyfriend, a handsome beau. <br>
-Romantic, charming, grand gestures abound. <br>
-He sure knew, knows? How to maken me flound. <br> 
-
-I’ll tell you of our initial pairing,  <br>
-Since you’re intrigued, I won’t be sparing. <br>
-
-In poli sci, him I wanted to shiv; <br>
-“Socially liberal, fiscally conservative.” <br>
-God what an ass, yet his face was pure class.  <br>
-Every day a debate, rebuttals and sass. <br>
-
-But one ‘noon he takes my hand,  <br>
-Leads me under a tree to stand. <br>
-Commands, “Kiss me.” I scoff, perplexed. “Well alright.” <br>
-He spins me in, holds tight, lands one… not light. <br>
-
-Thus started our romance, days of dance; <br>
-With notes, sweetness , he put me in a trance. <br>
-And when our playful banter turned to tiffs <br>
-He knew how to make me his.  <br>
-Draw me in, kiss me tight. <br>
-Thus would end our little fight. <br>
-
-Then one day, three months in, he got me riled. <br>
-Made some joke ‘bout my anger for pedofiles. <br>
-Well that made me mad. Absolutely beguiled.  <br>
-“Don’t you understand?” I yelled. “There’s rapists <br>
-In all the highest offices. <br>
-They’re everywhere,  <br>
-and people don’t care! <br>
-How can we go on with life, knowing all this, <br>
-Not fighting, striking, screaming.” <br>
-
-His laugh interrupts my chatter. <br>
-“You’re so cute when you’re angry… <br>
-Come here…” Then pulls me in <br>
-Knowing I’ll submit, lay off, back down <br>
-
-But not this time I’m too inflamed <br>
-“No!  <br>
-Don’t you understand? <br>
-This isn’t cute, this is real. Where is your humanity? <br>
- “Some things take time,” he says, <br>
-“That too shall pass, then you’ll have some coot like <br>
-Warren in that White House.”	 <br>
-
-That’s my final straw, I turn away. <br>
-But he pulls me in, like he always does. <br>
-Kisses me so tight my lips  <br>
-Go numb. <br>
-I give in to feel the blood. <br>
-
-Then he lead me to his room, <br>
-Told me he loved me. <br>
-I gave him a blowjob  <br>
-
-And left the next morning. <br>
-
-So here we are, I travel all alone. <br>
-You say it’s time to tell a tale, I’ll go on. <br>
-Something romantic, mystical, luring. <br>
-Have you heard of the Roman de la Rose? <br>
-Guillome’s start was superb, Jean’s part just groans. <br>
-How did the flower care to be plucked?  <br>
-From her point of view I will reconstruct. <br>
-A proper romance, one to fit the flirt. <br>
-If you’ll listen to me more, more I’ll tell. <br>
-For such love is quite a powerful spell.  <br>
-
-
+She balked with purpose yet discussed unsure, <br>
+Er, I dunno. New ideas she need procure.  <br>
+So off she went, herself for the finding. <br>
+I do hope she does some good deciding.  <br>
 
